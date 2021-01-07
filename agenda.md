@@ -59,7 +59,7 @@ On dépanne un tricot en panne et on démêle des fils.
 On papote, on rit, on boit un thé et on se tient chaud. 
 On se passe des modèles, on se montre ce qu'on a fait et on projette déjà... le prochain café tricot !!  
 
-#### dimanche 5 avril
+#### dimanche 5 avril222
 ## Réunion de programmation
 ** 10h **  
 Venez imaginer le programme mensuel avec nous !
