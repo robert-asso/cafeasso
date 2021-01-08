@@ -47,3 +47,7 @@ IGO, c’est, un mot court qui signifie « gravir » en langue basque mais il pe
 IGO, c’est un concert en solo, voix et objets, proposé dans le cadre du festival du Bleu en Hiver, par la Cie LagunArte, en partenariat avec l'Agora de Boulazac.
 
 Réservation obligatoire au 06 68 16 29 98  
+
+
+xxxxxxxxxxxxxxxxxx
+
