@@ -48,6 +48,4 @@ IGO, c’est un concert en solo, voix et objets, proposé dans le cadre du festi
 
 Réservation obligatoire au 06 68 16 29 98  
 
-
-xxxxxxxxxxxxxxxxxx
-
+yyyyyyyyy
