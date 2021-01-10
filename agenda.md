@@ -15,13 +15,13 @@ fin exemple -->
 Visitez régulièrement le site !
 
 
-#### Jeudi 28 janvier
+#### <del>Jeudi 28 janvier</del>
 
 ## REPORTÉ Café Paysan
 ** 20h00 **  
 
 
-#### Vendredi 29 janvier
+#### <del>Vendredi 29 janvier</del>
 
 ## REPORTÉ Concert UP! - Kristof Hiriart
 ** 10h00 **  
@@ -33,7 +33,7 @@ Par la Cie LagunArte, en partenariat avec l'Agora de Boulazac.</del>
 Si on ne peut grandir que jusqu’à sa propre hauteur, au-delà, trop haut ou trop vite, on risque la chute ?
 Sur le plateau : un corps-voix, des bouts de bois, de peau et de pierre, de l’eau et la construction d’une échelle par l’assemblage minutieux des montants et des barreaux. S’élever jusqu’au vertige, gravir lentement les marches de sa vie, avec prudence, et peut-être laisser échapper la lune.</del>
 
-#### Vendredi 29 janvier
+#### <del>Vendredi 29 janvier</del>
 
 ## REPORTÉ Concert IGO - Kristof Hiriart
 ** 20h30 **  
