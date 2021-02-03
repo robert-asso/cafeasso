@@ -20,7 +20,7 @@ Visitez régulièrement le site !
 ** 9h30- 16h30 **  
 Tarif : 70€/pers.
 Venez rempailler une chaise de taille classique ( 38 x 36 cm)
-Matériel non compris il faut ramener sa chaise et son tissu (environ deux draps)
+Matériel non compris. Apporter sa chaise et son tissu (environ deux draps).
 
 
 
