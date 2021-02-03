@@ -41,6 +41,7 @@ L'atelier Petit Cayou
 www.alinegayou.com
 
 Infos : 06 45 02 34 25
+Inscriptions : <a href='https://framaforms.org/atelier-viens-faire-ton-tableau-en-volume-avec-aline-gayou-1612381507'>Cliquez sur ce lien pour vous inscrire, entrez votre nom, prénoms et nombre de personne inscrite pour le stage</a>
 
 
 #### <del>Jeudi 28 janvier</del>
