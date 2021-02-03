@@ -22,6 +22,8 @@ Tarif : 70€/pers.
 Venez rempailler une chaise de taille classique ( 38 x 36 cm)
 Matériel non compris. Apporter sa chaise et son tissu (environ deux draps).
 
+Infos : 06 45 02 34 25
+
 
 
 #### Jeudi 11 février
@@ -35,6 +37,9 @@ A partir de 7 ans jusqu'à ...
 
 L'atelier Petit Cayou
 www.alinegayou.com
+
+Infos : 06 45 02 34 25
+
 
 #### <del>Jeudi 28 janvier</del>
 
