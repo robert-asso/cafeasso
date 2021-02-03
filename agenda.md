@@ -14,6 +14,27 @@ fin exemple -->
 ## La programmation est bien sûr perturbée...
 Visitez régulièrement le site !
 
+#### Mardi 9 février
+
+## Stage Rempaillage en tissus récupérés avec Marie Humeau Mazière
+** 9h30- 16h30 **  
+Tarif : 70€/pers.
+Venez rempailler une chaise de taille classique ( 38 x 36 cm)
+Matériel non compris il faut ramener sa chaise et son tissu (environ deux draps)
+
+
+
+#### Jeudi 11 février
+
+## Atelier : Viens créer ton tableau en volume
+** 20h00 ** 
+Tarifs : 20€/pers.
+Atelier d'expression plastique avec Aline Gayou, réaliser un mini tableau volume!
+Matériel fournis (ciseau, colle, papier, cordons)
+A partir de 7 ans jusqu'à ...
+
+L'atelier Petit Cayou
+www.alinegayou.com
 
 #### <del>Jeudi 28 janvier</del>
 
