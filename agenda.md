@@ -51,30 +51,3 @@ Infos : 06 45 02 34 25
 Inscriptions : <a href='https://framaforms.org/atelier-viens-faire-ton-tableau-en-volume-avec-aline-gayou-1612381507'>Cliquez sur ce lien pour vous inscrire, entrez votre nom, prénoms et nombre de personne inscrite pour le stage</a>
 
 
-#### <del>Jeudi 28 janvier</del>
-
-## REPORTÉ Café Paysan
-** 20h00 **  
-
-
-#### <del>Vendredi 29 janvier</del>
-
-## REPORTÉ Concert UP! - Kristof Hiriart
-** 10h00 **  
-<del>Scolaires - familles | 6€   
-Pour les petits pious pious de 6 mois à 5 ans !  
-Par la Cie LagunArte, en partenariat avec l'Agora de Boulazac.</del>
-
-<del>L’enfant grandit, sous l’œil attentif et protecteur de l’adulte, qui l’encourage dans ses apprentissages, le poussant même à aller plus vite, trop vite parfois.
-Si on ne peut grandir que jusqu’à sa propre hauteur, au-delà, trop haut ou trop vite, on risque la chute ?
-Sur le plateau : un corps-voix, des bouts de bois, de peau et de pierre, de l’eau et la construction d’une échelle par l’assemblage minutieux des montants et des barreaux. S’élever jusqu’au vertige, gravir lentement les marches de sa vie, avec prudence, et peut-être laisser échapper la lune.</del>
-
-#### <del>Vendredi 29 janvier</del>
-
-## REPORTÉ Concert IGO - Kristof Hiriart
-** 20h30 **  
-Tout public | 6€ 
-
-<del>IGO, c’est, un mot court qui signifie « gravir » en langue basque mais il peut aussi se prononcer « I go », « Je vais » en anglais. IGO, c’est la métaphore d’une construction personnelle, de l’élaboration extraordinaire de ce que l’on devient de l’événement de la naissance jusqu’à celui de la mort.
-IGO, c’est un concert en solo, voix et objets, proposé dans le cadre du festival du Bleu en Hiver, par la Cie LagunArte, en partenariat avec l'Agora de Boulazac.
-</del>
