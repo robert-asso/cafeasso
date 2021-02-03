@@ -20,9 +20,13 @@ Visitez régulièrement le site !
 ** 9h30- 16h30 **  
 Tarif : 70€/pers.
 Venez rempailler une chaise de taille classique ( 38 x 36 cm)
-Matériel non compris. Apporter sa chaise et son tissu (environ deux draps).
+
+Matériel non compris. 
+
+Apporter sa chaise et son tissu (environ deux draps).
 
 Infos : 06 45 02 34 25
+
 Inscription : <a href='https://framaforms.org/stage-rempaillage-avec-marie-humeau-maziere-1612380263'>Cliquez sur ce lien pour vous inscrire, entrez votre nom, prénoms et nombre de personne inscrite pour le stage</a>
   
 
@@ -34,13 +38,16 @@ Inscription : <a href='https://framaforms.org/stage-rempaillage-avec-marie-humea
 ** 20h00 ** 
 Tarifs : 20€/pers.
 Atelier d'expression plastique avec Aline Gayou, réaliser un mini tableau volume!
+
 Matériel fournis (ciseau, colle, papier, cordons)
+
 A partir de 7 ans jusqu'à ...
 
 L'atelier Petit Cayou
 www.alinegayou.com
 
 Infos : 06 45 02 34 25
+
 Inscriptions : <a href='https://framaforms.org/atelier-viens-faire-ton-tableau-en-volume-avec-aline-gayou-1612381507'>Cliquez sur ce lien pour vous inscrire, entrez votre nom, prénoms et nombre de personne inscrite pour le stage</a>
 
 
