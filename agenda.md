@@ -28,6 +28,9 @@ Apporter sa chaise et son tissu (environ deux draps).
 Infos/inscription : 06 45 02 34 25
 
 
+Places limitées / Respect des gestes barrières
+
+
 Descriptif de leur univers : https://www.cafeasso.fr/page3a.html
   
 
@@ -36,7 +39,7 @@ Descriptif de leur univers : https://www.cafeasso.fr/page3a.html
 #### Jeudi 11 février
 
 ## Atelier : Viens créer ton tableau en volume
-** 20h00 ** 
+** 13h30/16h30 ** 
 Tarifs : 20€/pers.
 Atelier d'expression plastique avec Aline Gayou, réaliser un mini tableau volume!
 
@@ -48,6 +51,8 @@ L'atelier Petit Cayou
 www.alinegayou.com
 
 Infos/Inscription : 06 45 02 34 25
+
+Places limitées / Respect des gestes barrières
 
 
 Descriptif de leur univers : https://www.cafeasso.fr/page3a.html
