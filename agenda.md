@@ -23,6 +23,9 @@ Venez rempailler une chaise de taille classique ( 38 x 36 cm)
 Matériel non compris. Apporter sa chaise et son tissu (environ deux draps).
 
 Infos : 06 45 02 34 25
+Inscription :     <iframe src="https://framaforms.org/stage-rempaillage-avec-marie-humeau-maziere-1612380263" width="100%" height="800"border="0">
+    </iframe>
+  
 
 
 
