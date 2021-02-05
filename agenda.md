@@ -63,4 +63,5 @@ Descriptif de leur univers : https://www.cafeasso.fr/page3a.html
 ** 15h30 ** 
 
 Le café tricot reprend ses aiguilles !!
+
 https://www.youtube.com/watch?v=jydcYkppwXw
