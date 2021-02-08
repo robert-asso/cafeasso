@@ -58,6 +58,16 @@ Places limitées / Respect des gestes barrières
 
 Descriptif de leur univers : https://www.cafeasso.fr/page3a.html
 
+#### Dimanche 14 février
+
+## Atelier Ecriture 
+** 15h00/18h00 **
+
+#### Samedi 27 Février
+
+## Réunion Prog'
+** A définir **
+
 #### Dimanche 28 Mars
 
 ## Reprise du café Tricot !
@@ -66,3 +76,9 @@ Descriptif de leur univers : https://www.cafeasso.fr/page3a.html
 Le café tricot reprend ses aiguilles !!
 
 https://www.youtube.com/watch?v=jydcYkppwXw
+
+
+#### Samedi Mars
+
+## Réunion Prog'
+** A définir **
