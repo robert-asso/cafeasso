@@ -16,7 +16,7 @@ Visitez régulièrement le site !
 
 #### Mardi 9 février
 
-## Stage Rempaillage en tissus récupérés avec Marie Humeau Mazière
+## (annulé) Stage Rempaillage en tissus récupérés avec Marie Humeau Mazière 
 ** 9h30- 16h30 **  
 Tarif : 70€/pers.
 Venez rempailler une chaise de taille classique ( 38 x 36 cm)
