@@ -14,54 +14,14 @@ fin exemple -->
 ## La programmation est bien sûr perturbée...
 Visitez régulièrement le site !
 
-#### Mardi 9 février
 
-## (Annulé) Stage Rempaillage en tissus récupérés avec Marie Humeau Mazière 
-ANNULE
-** 9h30- 16h30 **  
-Tarif : 70€/pers.
-Venez rempailler une chaise de taille classique ( 38 x 36 cm)
+#### Dimanche 21 février
 
-Matériel non compris. 
+## Atelier "Louise Michel"
+** 15h30/17h30 **
 
-Apporter sa chaise et son tissu (environ deux draps).
-
-Infos/inscription : 06 45 02 34 25
-
-
-Places limitées / Respect des gestes barrières
-
-
-Descriptif de leur univers : https://www.cafeasso.fr/page3a.html
-  
-
-
-
-#### Jeudi 11 février
-
-## Atelier : Viens créer ton tableau en volume
-** 13h30/16h30 ** 
-Tarifs : 20€/pers.
-Atelier d'expression plastique avec Aline Gayou, réaliser un mini tableau volume!
-
-Matériel fournis (ciseau, colle, papier, cordons)
-
-A partir de 7 ans jusqu'à ...
-
-L'atelier Petit Cayou
-www.alinegayou.com
-
-Infos/Inscription : 06 45 02 34 25
-
-Places limitées / Respect des gestes barrières
-
-
-Descriptif de leur univers : https://www.cafeasso.fr/page3a.html
-
-#### Dimanche 14 février
-
-## Atelier Ecriture 
-** 15h00/18h00 **
+Autour d’une réflexion existante nous vous invitons à venir échanger vos points de vue sur des sujets qui nous concernent tous .
+Cette première édition  est autour du sujet « Manipulation , mode d’emploi, essayons de comprendre ensemble. »  Nous nous appuierons sur un texte d’Edward Bernays pour démarrer notre réflexion, puis sur  Eric Verhaeghe parlant du great reset du forum de Davos, si nous en avons le temps.
 
 #### Samedi 27 Février
 
