@@ -23,7 +23,7 @@ Visitez régulièrement le site !
 Autour d’une réflexion existante nous vous invitons à venir échanger vos points de vue sur des sujets qui nous concernent tous .
 Cette première édition  est autour du sujet « Manipulation , mode d’emploi, essayons de comprendre ensemble. »  Nous nous appuierons sur un texte d’Edward Bernays pour démarrer notre réflexion, puis sur  Eric Verhaeghe parlant du great reset du forum de Davos, si nous en avons le temps.
 
-#### Samedi 27 Février
+#### Dimanche 28 Février
 
 ## Réunion Prog'
 ** 16h **
@@ -38,7 +38,7 @@ Le café tricot reprend ses aiguilles !!
 https://www.youtube.com/watch?v=jydcYkppwXw
 
 
-#### Samedi 27 Mars
+#### TOUS LES 28 DU MOIS
 
 ## Réunion Prog'
 ** 16h **
