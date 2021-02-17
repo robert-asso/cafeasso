@@ -26,7 +26,7 @@ Cette première édition  est autour du sujet « Manipulation , mode d’emploi,
 #### Samedi 27 Février
 
 ## Réunion Prog'
-** A définir **
+** 16h **
 
 #### Dimanche 28 Mars
 
@@ -38,7 +38,7 @@ Le café tricot reprend ses aiguilles !!
 https://www.youtube.com/watch?v=jydcYkppwXw
 
 
-#### Samedi Mars
+#### Samedi 27 Mars
 
 ## Réunion Prog'
-** A définir **
+** 16h **
