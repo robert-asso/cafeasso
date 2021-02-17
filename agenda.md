@@ -28,6 +28,15 @@ Cette première édition  est autour du sujet « Manipulation , mode d’emploi,
 ## Réunion Prog'
 ** 16h **
 
+
+#### Samedi 13 Mars
+
+## Inauguration de l'EXPO : "Un monde nommé désir"
+** Dès 13h **
+
+Programme à venir.
+https://www.cafeasso.fr/page3a.html
+
 #### Dimanche 28 Mars
 
 ## Reprise du café Tricot !
