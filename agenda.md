@@ -15,19 +15,6 @@ fin exemple -->
 Visitez régulièrement le site !
 
 
-#### Dimanche 21 février
-
-## Atelier "Louise Michel"
-** 15h30/17h30 **
-
-Autour d’une réflexion existante nous vous invitons à venir échanger vos points de vue sur des sujets qui nous concernent tous .
-Cette première édition  est autour du sujet « Manipulation , mode d’emploi, essayons de comprendre ensemble. »  Nous nous appuierons sur un texte d’Edward Bernays pour démarrer notre réflexion, puis sur  Eric Verhaeghe parlant du great reset du forum de Davos, si nous en avons le temps.
-
-#### Dimanche 28 Février
-
-## Réunion Prog'
-** 16h **
-
 
 #### Samedi 13 Mars
 
