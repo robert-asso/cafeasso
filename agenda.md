@@ -31,10 +31,11 @@ Cette première édition  est autour du sujet « Manipulation , mode d’emploi,
 
 #### Samedi 13 Mars
 
-## Inauguration de l'EXPO : "Un monde nommé désir"
-** Dès 13h **
+## A défaut d'un vernissage, dévernissage de l'EXPO : "Un monde nommé désir"
+** Dès 14h30 **
 
-Programme à venir.
+Programme :
+Lecture coquine et féministe avec Violette Sicre.
 https://www.cafeasso.fr/page3a.html
 
 #### Dimanche 28 Mars
