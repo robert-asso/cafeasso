@@ -1,4 +1,5 @@
 
+
 <!-- Exemple:
 
 #### mardi 10 mars
@@ -24,7 +25,7 @@ Visitez régulièrement le site !
 
 Programme :
 Lecture coquine avec Violette Sicre.
-
+![EXPOdevernissage](https://user-images.githubusercontent.com/77194514/109558694-0927e200-7ada-11eb-8841-94a4e79dde26.jpg)
 
 https://www.cafeasso.fr/page3a.html
 
