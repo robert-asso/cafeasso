@@ -21,13 +21,17 @@ Visitez régulièrement le site !
 #### Samedi 13 Mars
 
 ## A défaut d'un vernissage, dévernissage de l'EXPO : "Un monde nommé désir"
-** Dès 14h30 **
+** Dès 13h00 **
 
 Programme :
-Lecture coquine avec Violette Sicre.
+13h : ouverture de l'exposition "un monde nommé désir" en présence d'Aline Gayou et Marie Humeau Mazière
+Descriptif de leurs univers : https://www.cafeasso.fr/page3a.html
+14h30 : Lecture coquine avec Violette Sicre.
 ![EXPOdevernissage](https://user-images.githubusercontent.com/77194514/109558694-0927e200-7ada-11eb-8841-94a4e79dde26.jpg)
 
-https://www.cafeasso.fr/page3a.html
+Réservé aux adultes 
+Respects des gestes barrières
+
 
 #### Dimanche 28 Mars
 
