@@ -42,7 +42,7 @@ Respects des gestes barrières
 
 Le café tricot reprend ses aiguilles !!
 
-https://www.youtube.com/watch?v=jydcYkppwXw
+[Café tricot en vidéo](https://www.youtube.com/watch?v=jydcYkppwXw)
 
 
 #### TOUS LES 28 DU MOIS
