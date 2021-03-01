@@ -1,3 +1,4 @@
+![affiche léguillac](https://user-images.githubusercontent.com/77194514/109545359-0ffa2900-7ac9-11eb-9cbb-c171437750b2.jpg)
 <!-- Exemple:
 
 #### mardi 10 mars
@@ -24,7 +25,9 @@ Visitez régulièrement le site !
 Programme :
 Lecture coquine avec Violette Sicre.
 
-affiche léguillac.jpg![Uploading image.png…]()
+![GitHub Logo](affiche léguillac.jpg)
+Format: ![Alt Text](url)
+!
 
 https://www.cafeasso.fr/page3a.html
 
