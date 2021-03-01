@@ -23,6 +23,9 @@ Visitez régulièrement le site !
 
 Programme :
 Lecture coquine avec Violette Sicre.
+
+affiche léguillac.jpg![Uploading image.png…]()
+
 https://www.cafeasso.fr/page3a.html
 
 #### Dimanche 28 Mars
