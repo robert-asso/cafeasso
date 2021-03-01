@@ -22,7 +22,7 @@ Visitez régulièrement le site !
 ** Dès 14h30 **
 
 Programme :
-Lecture coquine et féministe avec Violette Sicre.
+Lecture coquine avec Violette Sicre.
 https://www.cafeasso.fr/page3a.html
 
 #### Dimanche 28 Mars
