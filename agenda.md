@@ -1,4 +1,4 @@
-![affiche léguillac](https://user-images.githubusercontent.com/77194514/109545359-0ffa2900-7ac9-11eb-9cbb-c171437750b2.jpg)
+
 <!-- Exemple:
 
 #### mardi 10 mars
@@ -25,7 +25,7 @@ Visitez régulièrement le site !
 Programme :
 Lecture coquine avec Violette Sicre.
 
-![GitHub Logo](affiche léguillac.jpg)
+![GitHub Logo](![affiche léguillac](https://user-images.githubusercontent.com/77194514/109545359-0ffa2900-7ac9-11eb-9cbb-c171437750b2.jpg))
 Format: ![Alt Text](url)
 !
 
