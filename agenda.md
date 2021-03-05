@@ -18,7 +18,9 @@ Visitez régulièrement le site !
 
 
 ## Tous les 2èmes vendredi de chaque mois
-Livraison des « Cagettes »
+Livraison des paniers de producteurs « Cagettes »
+
+Plus d'infos :
 https://app.cagette.net/home
 
 #### Samedi 13 Mars
