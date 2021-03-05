@@ -17,6 +17,9 @@ fin exemple -->
 Visitez régulièrement le site !
 
 
+## Tous les 2èmes vendredi de chaque mois
+Livraison des « Cagettes »
+https://app.cagette.net/home
 
 #### Samedi 13 Mars
 
