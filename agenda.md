@@ -32,10 +32,18 @@ Descriptif de leurs univers : https://www.cafeasso.fr/page3a.html
 
 
 14h30 : Lecture coquine avec Violette Sicre.
-![EXPOdevernissage](https://user-images.githubusercontent.com/77194514/109558694-0927e200-7ada-11eb-8841-94a4e79dde26.jpg)
+
+![EXPOdevernissage](https://user-images.githubusercontent.com/77194514/110139433-4b4f6d00-7dd3-11eb-91e1-a3a2659715ff.jpg)
+
 
 Réservé aux adultes 
 Respects des gestes barrières
+
+#### Dimanche 14 Mars
+
+## Atelier écriture
+** 15h00 ** 
+
 
 
 #### Dimanche 28 Mars
@@ -58,6 +66,10 @@ Le café tricot reprend ses aiguilles !!
 ## Réunion du collège
 ** 19h **
 
+#### Dimanche 11 Avril
+
+## Atelier écriture
+** 15h00 ** 
 
 #### Samedi 24 Avril
 
@@ -66,6 +78,11 @@ Le café tricot reprend ses aiguilles !!
 
 Le chapiteau de la Cie débarque à Léguillac !! A vos agendas
 Bientôt plus d'infos
+
+#### Dimanche 16 Mai
+
+## Atelier écriture
+** 15h00 ** 
 
 #### Samedi 29 Mai
 
