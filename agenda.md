@@ -52,3 +52,17 @@ Le café tricot reprend ses aiguilles !!
 
 ## Réunion Prog'
 ** 16h **
+
+#### Vendredi 2 avril
+
+## Réunion du collège
+** 19h **
+
+
+#### Samedi 24 Avril
+
+## Cie du Désastre
+** 15h00 ** 
+
+Le chapiteau de la Cie débarque à Léguillac !! A vos agendas
+Bientôt plus d'infos
