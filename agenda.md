@@ -66,3 +66,12 @@ Le café tricot reprend ses aiguilles !!
 
 Le chapiteau de la Cie débarque à Léguillac !! A vos agendas
 Bientôt plus d'infos
+
+#### Samedi 29 Mai
+
+## Concert Pierre Sangue
+** A définir ** 
+
+Aperçu : https://www.youtube.com/watch?v=ba2sVVMknXI
+https://www.youtube.com/watch?v=mS33n7XU5Jw
+
