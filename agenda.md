@@ -24,29 +24,11 @@ Plus d'infos :
 
 https://app.cagette.net/home
 
-#### Samedi 13 Mars
-
-## A défaut d'un vernissage, dévernissage de l'EXPO : "Un monde nommé désir"
-** Dès 13h00 **
-
-Programme :
-13h : Ouverture de l'exposition "un monde nommé désir" en présence d'Aline Gayou et Marie Humeau Mazière
-Descriptif de leurs univers : https://www.cafeasso.fr/page3a.html
-
-
-14h30 : Lecture coquine avec Violette Sicre.
-
-![EXPOdevernissage](https://user-images.githubusercontent.com/77194514/110139433-4b4f6d00-7dd3-11eb-91e1-a3a2659715ff.jpg)
-
-
-Réservé aux adultes 
-Respects des gestes barrières
 
 #### Dimanche 14 Mars
 
 ## Atelier écriture
 ** 15h00 ** 
-
 
 
 #### Dimanche 28 Mars
