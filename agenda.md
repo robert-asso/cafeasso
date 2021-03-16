@@ -31,6 +31,11 @@ https://app.cagette.net/home
 ** 15h00 ** 
 
 
+#### Dimanche 21 Mars
+
+## Atelier "Louise Michel"
+** 15h00 ** 
+
 #### Dimanche 28 Mars
 
 ## Reprise du café Tricot !
@@ -40,11 +45,12 @@ Le café tricot reprend ses aiguilles !!
 
 [Café tricot en vidéo](https://www.youtube.com/watch?v=jydcYkppwXw)
 
+Contacter Berry, si vous venez au 06 34 23 12 69
 
 #### TOUS LES 28 DU MOIS
 
 ## Réunion Prog'
-** 16h **
+** 10h **
 
 #### Vendredi 2 avril
 
@@ -54,6 +60,11 @@ Le café tricot reprend ses aiguilles !!
 #### Dimanche 11 Avril
 
 ## Atelier écriture
+** 15h00 ** 
+
+#### Dimanche 18 Avril
+
+## Atelier "Louise Michel"
 ** 15h00 ** 
 
 #### Samedi 24 Avril
