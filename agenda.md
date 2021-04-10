@@ -25,28 +25,6 @@ Plus d'infos :
 https://app.cagette.net/home
 
 
-#### Dimanche 14 Mars
-
-## Atelier écriture
-** 15h00 ** 
-
-
-#### Dimanche 21 Mars
-
-## Atelier "Louise Michel"
-** 15h00 ** 
-
-#### Dimanche 28 Mars
-
-## Reprise du café Tricot !
-** 15h30 ** 
-
-Le café tricot reprend ses aiguilles !!
-
-[Café tricot en vidéo](https://www.youtube.com/watch?v=jydcYkppwXw)
-
-Contacter Berry, si vous venez au 06 34 23 12 69
-
 #### TOUS LES 28 DU MOIS
 
 ## Réunion Prog'
@@ -66,14 +44,6 @@ Contacter Berry, si vous venez au 06 34 23 12 69
 
 ## Atelier "Louise Michel"
 ** 15h00 ** 
-
-#### Samedi 24 Avril
-
-## Cie du Désastre
-** 15h00 ** 
-
-Le chapiteau de la Cie débarque à Léguillac !! A vos agendas
-Bientôt plus d'infos
 
 #### Dimanche 16 Mai
 
