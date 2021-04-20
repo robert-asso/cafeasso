@@ -30,21 +30,6 @@ https://app.cagette.net/home
 ## Réunion Prog'
 ** 10h **
 
-#### Vendredi 2 avril
-
-## Réunion du collège
-** 19h **
-
-#### Dimanche 11 Avril
-
-## Atelier écriture
-** 15h00 ** 
-
-#### Dimanche 18 Avril
-
-## Atelier "Louise Michel"
-** 15h00 ** 
-
 #### Du 24 avril au 2 mai 
 
 ## Accueil résidence "Cie du Désastre"
