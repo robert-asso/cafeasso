@@ -50,6 +50,8 @@ Par l'accueil de cette résidence de travail, notre association souhaite prêter
 ## Troc de plants
 ** 10h00 à 17h00 ** 
 
+![fm051004-020-l760-h550](https://user-images.githubusercontent.com/77194514/115352312-83f6aa80-a1b7-11eb-9648-e149395a63b1.jpg)
+
 TROC PLANTS au Café de Léguillac,
 
 Le dimanche 9 Mai de 10h à 17h aura lieu en plein air et en respectant les gestes barrières , un troc de plants de légumes et de fleurs !
