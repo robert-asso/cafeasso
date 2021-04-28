@@ -27,8 +27,8 @@ https://app.cagette.net/home
 
 #### TOUS LES 28 DU MOIS
 
-## Réunion Prog'
-** 10h **
+## Réunion Prog' ce mercredi 28
+** 17h **
 
 #### Du 24 avril au 2 mai 
 
