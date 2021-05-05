@@ -30,21 +30,6 @@ https://app.cagette.net/home
 ## Réunion Prog' ce mercredi 28
 ** 17h **
 
-#### Du 24 avril au 2 mai 
-
-## Accueil résidence "Cie du Désastre"
-
-<img width="400" alt="Capture d’écran 2021-04-20 à 08 59 05" src="https://user-images.githubusercontent.com/77194514/115351612-b6ec6e80-a1b6-11eb-8d62-9134c5d82547.png">
-
-Le Cirque du Désastre
- 
-sera en résidence artistique du 24 avril au 2 mai à Léguillac-de-Cercles. Les membres de la compagnie poseront leur chapiteau dans notre village pour y travailler à la création de leur nouveau spectacle dont la sortie est prévue en 2021.Une restitution de cette étape de travail (avant-goût du futur spectacle) sera proposée samedi 1er mai 2021 à 15h. Cette représentation, qui ne sera pas accessible au public, est destinée aux programmateurs/trices professionnels ou associatifs8. Si vous êtes dans ce cas de figure
-Merci de réserver votre place au 06 68 16 29 98
-Pour le trajet, pensez à prendre avec vous la dérogation justifiant du caractère professionnel ou associatif de votre déplacement.
-Sur place, les règles sanitaires en vigueur seront respectées.
-Le Cirque reviendra bien sûr pour une représentation tout public dès que possible.
-Par l'accueil de cette résidence de travail, notre association souhaite prêter main forte au monde du spectacle vivant, durement touché depuis un an.
-
 #### Dimanche 9 Mai
 
 ## Troc de plants
