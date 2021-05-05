@@ -70,10 +70,16 @@ PS: si vous avez des godets en plastique en trop pour les plants , n'hésitez pa
 ## Atelier écriture
 ** 15h00 ** 
 
-#### Samedi 29 Mai
+#### Dimanche 30 Mai
 
 ## Concert Pierre Sangue
-** A définir ** 
+** A partir de 14h ** 
+
+A partir de 14h / Moments de rencontres 
+
+Détails à venir
+
+Concert de Pierre Sangue à partir de 17h30.
 
 <img width="457" alt="Capture d’écran 2021-04-20 à 09 02 29" src="https://user-images.githubusercontent.com/77194514/116379697-9013e500-a813-11eb-8cf8-d430cf46fa29.png">
 
