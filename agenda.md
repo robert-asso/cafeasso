@@ -60,7 +60,7 @@ PS: si vous avez des godets en plastique en trop pour les plants , n'hésitez pa
 ## Concert Pierre Sangue
 ** A partir de 14h ** 
 
-A partir de 14h / Moments de rencontres 
+A partir de 15h / Moments de rencontres 
 
 Détails à venir
 
