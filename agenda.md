@@ -28,7 +28,7 @@ https://app.cagette.net/home
 #### TOUS LES 28 DU MOIS
 
 ## Réunion Prog' ce vendredi 28
-** 17h **
+** 19h **
 
 
 #### Dimanche 30 Mai
