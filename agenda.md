@@ -70,10 +70,13 @@ Sortie "Pollinisateurs" en partenariat avec le Parc Naturel Régional.
 ## Café Collapsologie
 ** A 19h30 **
 
-#### Dimanche 25 Juin
+#### Dimanche 25 Juillet
 
 ## Café Tricot
 ** A 15h00 **
+
+
+#### Dimanche 25 Juillet
 
 ## Café Philo
 ** A 16h00 **
