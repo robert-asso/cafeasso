@@ -61,7 +61,7 @@ Berry, Philippe, Jean-Luc, Véronique contactent des musiciens.
 #### Dimanche 27 Juin
 
 ## Sortie "Pollinisateurs"
-** A 14h30 **
+** A 14h00 **
 
 Sortie "Pollinisateurs" en partenariat avec le Parc Naturel Régional.
 
