@@ -31,44 +31,17 @@ https://app.cagette.net/home
 ** 19h **
 
 
-#### Dimanche 13 Juin
-
-## « Un dimanche de retrouvailles »
-** A partir de 15h ** 
-
-Jeux de société, et jeux de palets, quilles nordiques, pétanque etc.
-vers 18h bœuf musical et apéro,
-Le bar sera ouvert tout l’après-midi avec vente de gâteaux et de tartes.
-Apportez vos jeux préférés et vos instruments de musique ! Une autre manière de participer… faire un gâteau donne droit à 4 jetons négociables au bar !
-Berry, Philippe, Jean-Luc, Véronique contactent des musiciens.
-
-
-#### Vendredi 18 Juin
-
-## Café Collapsologie
-** A 19h30 ** 
-
-#### Dimanche 20 Juin
-
-## Café Tricot
-** A 16h00 ** 
-
-#### Jeudi 24 Juin
-
-## Café paysan
-** A 20h00 **
-
-#### Dimanche 27 Juin
-
-## Sortie "Pollinisateurs"
-** A 14h00 **
-
-Sortie "Pollinisateurs" en partenariat avec le Parc Naturel Régional.
-
 #### Vendredi 23 Juillet
 
 ## Café Collapsologie
 ** A 19h30 **
+
+#### Samedi 24 Juillet
+
+## Après-midi et soirée, jeux et Dj
+** A partir de 16h00 **
+
+Bientôt le programme de l'après-midi
 
 #### Dimanche 25 Juillet
 
@@ -81,6 +54,17 @@ Sortie "Pollinisateurs" en partenariat avec le Parc Naturel Régional.
 ## Café Philo
 ** A 16h00 **
 
+#### Mercredi 28 Juillet
+
+## Réunion prog'
+** A 19h00 **
+
+#### Vendredi 30 Juillet
+
+## Soirée Ciné-Débat
+** A 21h00 **
+
+Bientôt le programme de la soirée
 
 
 
