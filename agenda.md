@@ -25,10 +25,8 @@ Plus d'infos :
 https://app.cagette.net/home
 
 
-#### TOUS LES 28 DU MOIS
-
-## Réunion Prog' ce vendredi 28
-** 19h **
+#### TOUS LES 28 DU MOIS sauf pour le mois de juillet.
+** à 19h **
 
 
 #### Vendredi 23 Juillet
