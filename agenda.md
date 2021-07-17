@@ -54,17 +54,25 @@ Bientôt le programme de l'après-midi
 ## Café Philo
 ** A 16h00 **
 
-#### Mercredi 28 Juillet
+#### Lundi 19 Juillet (EXCEPTioNNELLE!!)
 
 ## Réunion prog'
 ** A 19h00 **
+
+Réunion ouverte au plus grand nombre car plus on est de fou...plus y'a d'la folie !!
 
 #### Vendredi 30 Juillet
 
 ## Soirée Ciné-Débat
 ** A 21h00 **
 
-Bientôt le programme de la soirée
+THEME 
+"Lettre à G"  repenser notre société avec André Gorz.
+Film consacré à André Gorz, l’un des intellectuels les plus stimulants du XXIe siècle. Disciple de Sartre, très influencé par Ivan Illich, il fut tout à la fois philosophe, journaliste engagé, critique économique, penseur de l’autonomie et pionnier de l’écologie politique en France.
+ 
+Une soirée film-débat aura lieu tous les 2 mois.
+
+
 
 
 
