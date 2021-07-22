@@ -84,11 +84,14 @@ Réunion ouverte au plus grand nombre car plus on est de fou...plus y'a d'la fol
 ## Soirée Ciné-Débat
 ** A 21h00 **
 
-THEME 
-"Lettre à G"  repenser notre société avec André Gorz.
+Soirée film-débat:
+"Lettre à G" repenser notre société avec André Gorz.
 Film consacré à André Gorz, l’un des intellectuels les plus stimulants du XXIe siècle. Disciple de Sartre, très influencé par Ivan Illich, il fut tout à la fois philosophe, journaliste engagé, critique économique, penseur de l’autonomie et pionnier de l’écologie politique en France.
- 
+Jauge à 50 personnes.
+Participation au droit de diffusion au chapeau.
+
 Une soirée film-débat aura lieu tous les 2 mois.
+
 
 
 
