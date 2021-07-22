@@ -39,8 +39,28 @@ https://app.cagette.net/home
 ## Après-midi et soirée, jeux et Dj
 ** A partir de 16h00 **
 
-Bientôt le programme de l'après-midi
+Venez partager vos jeux (jeux de société, molkki...) accompagnés du "BUM" qui viendra nous régaler avec sa programmation éclectique.
+En fin d'après midi le Bum sera enchanté d'accueillir au micro un jeune homme qui nous vient de Guinée, "Daouda King", fireman qui posera son flow sur des sets endiablés de vieux Ragga Dancehall mais aussi, styles plus récents dans la culture sound system, Dubstep, Trap et Drum and Bass halftime.
+À 20 h, nous aurons le groupe ""Koyoka, duo Ethno Fusion qui nous donnera un aperçu de son univers à travers quelques morceaux lives.
+ 
+https://tinyurl.com/u7szu7js
+ 
+A 21h (jusque vers minuit/1h dernier carat) Le groupe "Go To The Dogs",en route pour le festival de Marciac, nous fait le plaisir de s'arrêter au café avec son jazz volcanique.
+ 
+ Entrée: 5€ adhérents
+Jauge à 50 personnes. Petite restauration sur place. ( Et appel à tarte comme toujours)
+ 
 
+https://www.youtube.com/watch?v=cqILIrEu8cE
+ 
+Contact:
+Virginie 0660597193
+Marco 0650963384
+ 
+ 
+ 
+ INscriptions - bénévolats : https://framadate.org/SyXCAENkbmTevop8
+ 
 #### Dimanche 25 Juillet
 
 ## Café Tricot
