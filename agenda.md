@@ -25,7 +25,7 @@ Plus d'infos :
 https://app.cagette.net/home
 
 
-#### TOUS LES 28 DU MOIS / REUNION PROG
+#### Tous les 28 du mois réunion prog'
 ** à 19h **
 
 Ouverte à tou.te.s
@@ -63,7 +63,7 @@ Jauge à 50 personnes
 
 #### Samedi 21 Août
 
-## CONCERT "LA VORACE"
+## Concert "La vorace"
 ** A 21h **
 
 Concert avec "La Vorace"
