@@ -25,54 +25,14 @@ Plus d'infos :
 https://app.cagette.net/home
 
 
-#### TOUS LES 28 DU MOIS sauf pour le mois de juillet.
+#### TOUS LES 28 DU MOIS / REUNION PROG
 ** à 19h **
 
-
-#### Vendredi 23 Juillet
-
-## Café Collapsologie
-** A 19h30 **
-
-#### Samedi 24 Juillet
-
-## Après-midi et soirée, jeux et Dj
-** A partir de 16h00 **
-
-Venez partager vos jeux (jeux de société, molkki...) accompagnés du "BUM" qui viendra nous régaler avec sa programmation éclectique.
-En fin d'après midi le Bum sera enchanté d'accueillir au micro un jeune homme qui nous vient de Guinée, "Daouda King", fireman qui posera son flow sur des sets endiablés de vieux Ragga Dancehall mais aussi, styles plus récents dans la culture sound system, Dubstep, Trap et Drum and Bass halftime.
-À 20 h, nous aurons le groupe ""Koyoka, duo Ethno Fusion qui nous donnera un aperçu de son univers à travers quelques morceaux lives.
- 
-https://tinyurl.com/u7szu7js
- 
-A 21h (jusque vers minuit/1h dernier carat) Le groupe "Go To The Dogs",en route pour le festival de Marciac, nous fait le plaisir de s'arrêter au café avec son jazz volcanique.
- 
- Entrée: 5€ adhérents
-Jauge à 50 personnes. Petite restauration sur place. ( Et appel à tarte comme toujours)
- 
-
-https://www.youtube.com/watch?v=cqILIrEu8cE
- 
-Contact:
-Virginie 0660597193
-Marco 0650963384
- 
- 
- 
- INscriptions - bénévolats : https://framadate.org/SyXCAENkbmTevop8
- 
-#### Dimanche 25 Juillet
-
-## Café Tricot
-** A 15h00 **
+Ouverte à tou.te.s
 
 
-#### Dimanche 25 Juillet
 
-## Café Philo
-** A 16h00 **
-
-#### Lundi 19 Juillet (EXCEPTioNNELLE!!)
+#### Mercredi 28 Juillet 
 
 ## Réunion prog'
 ** A 19h00 **
@@ -92,7 +52,34 @@ Participation au droit de diffusion au chapeau.
 
 Une soirée film-débat aura lieu tous les 2 mois.
 
+#### Mardi 10 Août
 
+## Café Oc'
+** A 19h00 à 22h **
+
+Le Café Oc reprend chaque 2ème mardi du mois,
+animé par Olivier Pigeassou. La soirée se déroulera avec une auberge espagnole, où les gens, adhérents du café, viendront avec leur repas à partager et leurs couverts....Parlarem occitan!
+Jauge à 50 personnes
+
+#### Samedi 21 Août
+
+## CONCERT "LA VORACE"
+** A 21h **
+
+Concert avec "La Vorace"
+Ce groupe avec une proposition poético-musicale s'est formé depuis un an, ils sont prêts à partager avec vous leur répertoire aux sons rocks et enjoués, sur des textes de Jean-Pierre Siméon. 
+Avec Mathieu Bérenger à la contrebasse,
+David Jalliffier-Verne à la guitare électrique,
+Cyril Lababidi à la batterie
+et Loubna Chebouti au dire et au chant.
+Jauge à 50 personnes
+
+  https://www.youtube.com/playlist?list=PLMSxzt8_eYQUR0O5cCvZlwh3AGiVQn8WW
+  
+#### Mardi 18 & 19 Septembre
+
+## PETITS TOITS D'ETOILES
+** Programme du festival venir **
 
 
 
