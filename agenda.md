@@ -25,12 +25,6 @@ Plus d'infos :
 https://app.cagette.net/home
 
 
-#### Tous les 28 du mois réunion prog'
-** à 19h **
-
-Ouverte à tou.te.s
-
-
 
 #### Mercredi 28 Juillet 
 
