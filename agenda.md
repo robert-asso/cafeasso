@@ -70,7 +70,7 @@ Jauge à 50 personnes
 
   https://www.youtube.com/playlist?list=PLMSxzt8_eYQUR0O5cCvZlwh3AGiVQn8WW
   
-#### Mardi 18 & 19 Septembre
+#### 18 & 19 Septembre
 
 ## PETITS TOITS D'ETOILES
 ** Programme du festival venir **
