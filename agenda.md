@@ -24,7 +24,12 @@ Plus d'infos :
 
 https://app.cagette.net/home
 
+#### Du 30 juillet à mi-septembre
 
+## Exposition de photos : 1er haut fourneau d'Afrique
+** Visible lors des événements du café **
+
+Souleymane et Cécile sont partis fin 2019 au Sénégal pour construire le premier haut fourneau école d'Afrique pour permettre aux populations de transformer leur minerai en fer. Cette exposition photographique retrace les débuts de cette aventure extraordinaire. Tout d'abord les premières étapes de la construction du haut fourneau puis le travail des femmes dans la pépinière dont les arbres serviront de combustible. 
 
 #### Mercredi 28 Juillet 
 
@@ -55,6 +60,11 @@ Le Café Oc reprend chaque 2ème mardi du mois,
 animé par Olivier Pigeassou. La soirée se déroulera avec une auberge espagnole, où les gens, adhérents du café, viendront avec leur repas à partager et leurs couverts....Parlarem occitan!
 Jauge à 50 personnes
 
+#### Vendredi 20 Août
+
+## Café Collapso
+** A 19h30 **
+
 #### Samedi 21 Août
 
 ## Concert "La vorace"
@@ -70,6 +80,23 @@ Jauge à 50 personnes
 
   https://www.youtube.com/playlist?list=PLMSxzt8_eYQUR0O5cCvZlwh3AGiVQn8WW
   
+  
+#### Samedi 28 Août
+
+## Réunion de prépa du Petits Toits d'étoiles
+** A 16h00 **
+  
+Ouverte au plus grand nombre.
+
+#### Dimanche 29 Août
+
+## Café Tricot
+** A 15h00 **
+
+## Café Philo
+** A 16h00 **
+  
+
 #### 18 & 19 Septembre
 
 ## PETITS TOITS D'ETOILES
