@@ -31,25 +31,6 @@ https://app.cagette.net/home
 
 Souleymane et Cécile sont partis fin 2019 au Sénégal pour construire le premier haut fourneau école d'Afrique pour permettre aux populations de transformer leur minerai en fer. Cette exposition photographique retrace les débuts de cette aventure extraordinaire. Tout d'abord les premières étapes de la construction du haut fourneau puis le travail des femmes dans la pépinière dont les arbres serviront de combustible. 
 
-#### Mercredi 28 Juillet 
-
-## Réunion prog'
-** A 19h00 **
-
-Réunion ouverte au plus grand nombre car plus on est de fou...plus y'a d'la folie !!
-
-#### Vendredi 30 Juillet
-
-## Soirée Ciné-Débat
-** A 21h00 **
-
-Soirée film-débat:
-"Lettre à G" repenser notre société avec André Gorz.
-Film consacré à André Gorz, l’un des intellectuels les plus stimulants du XXIe siècle. Disciple de Sartre, très influencé par Ivan Illich, il fut tout à la fois philosophe, journaliste engagé, critique économique, penseur de l’autonomie et pionnier de l’écologie politique en France.
-Jauge à 50 personnes.
-Participation au droit de diffusion au chapeau.
-
-Une soirée film-débat aura lieu tous les 2 mois.
 
 #### Mardi 10 Août
 
@@ -80,7 +61,13 @@ Jauge à 50 personnes
 
   https://www.youtube.com/playlist?list=PLMSxzt8_eYQUR0O5cCvZlwh3AGiVQn8WW
   
+#### Vendredi 27 Août  
+## Café Paysan
+** A 20h00 **
   
+Thème "Créer un groupe des Amis de la Confédération Paysanne Dordogne"   
+
+
 #### Samedi 28 Août
 
 ## Réunion de prépa du Petits Toits d'étoiles
