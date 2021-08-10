@@ -31,8 +31,9 @@ https://app.cagette.net/home
 
 Souleymane et Cécile sont partis fin 2019 au Sénégal pour construire le premier haut fourneau école d'Afrique pour permettre aux populations de transformer leur minerai en fer. Cette exposition photographique retrace les débuts de cette aventure extraordinaire. Tout d'abord les premières étapes de la construction du haut fourneau puis le travail des femmes dans la pépinière dont les arbres serviront de combustible. 
 
-[affiche expo sideropolis fond orange-1.pdf](https://github.com/robert-asso/cafeasso/files/6963135/affiche.expo.sideropolis.fond.orange-1.pdf)
-![IMG_20210806_102117](https://user-images.githubusercontent.com/77194514/128900128-ca24c487-3b0a-4c19-88fe-5b9fb53de5af.jpg)
+![affiche-expo-sideropolis-fond-orange-1](https://user-images.githubusercontent.com/77194514/128900591-c5c70fa0-702f-48e0-8c55-ca05474da49c.jpg)
+![IMG_20210806_102117](https://user-images.githubusercontent.com/77194514/128900620-bc80a634-b429-48a0-9c7f-dc34378ef4b5.jpg)
+
 
 
 #### Mardi 10 Août
