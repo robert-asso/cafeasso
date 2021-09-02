@@ -33,65 +33,22 @@ Souleymane et Cécile sont partis fin 2019 au Sénégal pour construire le premi
 
 ![Sans-titre-1](https://user-images.githubusercontent.com/77194514/128901371-8cc3c64a-be7c-412b-804b-53456952fe56.jpg)
 
+#### 5 septembre
 
+## Réunion "tour d'horizon"
+** Ouvert dès 9h30 - 10h début de réunion **
 
+ 
+Comme annoncé depuis juillet, on se retrouve dimanche pour faire un tour d'horizon de cette année, avant l'AG prévue fin octobre-début novembre.
+Le Café sera ouvert dès 9h30.
+Puis à partir de 10h, les idées fusent, on propose, on débat...
+Ensuite on boit un coup et on pique-nique ensemble!
+A dimanche
 
-#### Mardi 10 Août
+#### 18 & 19 Septembre (annulé)
 
-## Café Oc'
-** A 19h00 à 22h **
-
-Le Café Oc reprend chaque 2ème mardi du mois,
-animé par Olivier Pigeassou. La soirée se déroulera avec une auberge espagnole, où les gens, adhérents du café, viendront avec leur repas à partager et leurs couverts....Parlarem occitan!
-Jauge à 50 personnes
-
-#### Vendredi 20 Août
-
-## Café Collapso
-** A 19h30 **
-
-#### Samedi 21 Août
-
-## Concert "La vorace"
-** A 21h **
-
-Concert avec "La Vorace"
-Ce groupe avec une proposition poético-musicale s'est formé depuis un an, ils sont prêts à partager avec vous leur répertoire aux sons rocks et enjoués, sur des textes de Jean-Pierre Siméon. 
-Avec Mathieu Bérenger à la contrebasse,
-David Jalliffier-Verne à la guitare électrique,
-Cyril Lababidi à la batterie
-et Loubna Chebouti au dire et au chant.
-Jauge à 50 personnes
-
-  https://www.youtube.com/playlist?list=PLMSxzt8_eYQUR0O5cCvZlwh3AGiVQn8WW
-  
-#### Vendredi 27 Août  
-## Café Paysan
-** A 20h00 **
-  
-Thème "Créer un groupe des Amis de la Confédération Paysanne Dordogne"   
-
-
-#### Samedi 28 Août
-
-## Réunion de prépa du Petits Toits d'étoiles
-** A 16h00 **
-  
-Ouverte au plus grand nombre.
-
-#### Dimanche 29 Août
-
-## Café Tricot
-** A 15h00 **
-
-## Café Philo
-** A 16h00 **
-  
-
-#### 18 & 19 Septembre
-
-## PETITS TOITS D'ETOILES
-** Programme du festival venir **
+## PETITS TOITS D'ETOILES (annulé)
+** Evénement annulé **
 
 
 
