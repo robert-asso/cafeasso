@@ -39,6 +39,9 @@ https://app.cagette.net/home
 
 15h
 
+<img width="691" alt="Café tricot" src="https://user-images.githubusercontent.com/77194514/132258126-2237668e-bc70-4688-9b77-b1c282652e94.png">
+https://france3-regions.francetvinfo.fr/nouvelle-aquitaine/dordogne/perigord/leguillac-cercle-24-on-tricote-du-lien-social-1401993.html
+
 ## Café Philo
 ** Tous les 4èmes dimanches de chaque mois **
 
