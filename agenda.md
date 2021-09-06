@@ -17,12 +17,34 @@ fin exemple -->
 Visitez régulièrement le site !
 
 
-## Tous les 2èmes vendredi de chaque mois
-Livraison des paniers de producteurs « Cagettes »
+## Livraison des paniers de producteurs « Cagettes »
+** Tous les 2èmes vendredi de chaque mois **
 
 Plus d'infos :
 
 https://app.cagette.net/home
+
+## Café Oc'
+** Tous les 2èmes mardi de chaque mois **
+
+19h-22h
+
+## Café Collap's
+** Tous les 3èmes vendredis de chaque mois **
+
+19h30
+
+## Café Tricot
+** Tous les 4èmes dimanches de chaque mois **
+
+15h
+
+## Café Philo
+** Tous les 4èmes dimanches de chaque mois **
+
+16h
+
+
 
 #### Du 30 juillet à mi-septembre
 
