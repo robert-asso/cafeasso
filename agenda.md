@@ -58,22 +58,15 @@ Souleymane et Cécile sont partis fin 2019 au Sénégal pour construire le premi
 
 ![Sans-titre-1](https://user-images.githubusercontent.com/77194514/128901371-8cc3c64a-be7c-412b-804b-53456952fe56.jpg)
 
-#### 5 septembre
 
-## Réunion "tour d'horizon"
-** Ouvert dès 9h30 - 10h début de réunion **
-
- 
-Comme annoncé depuis juillet, on se retrouve dimanche pour faire un tour d'horizon de cette année, avant l'AG prévue fin octobre-début novembre.
-Le Café sera ouvert dès 9h30.
-Puis à partir de 10h, les idées fusent, on propose, on débat...
-Ensuite on boit un coup et on pique-nique ensemble!
 A dimanche
 
 #### 18 & 19 Septembre (annulé)
 
 ## PETITS TOITS D'ETOILES (annulé)
 ** Evénement annulé **
+
+
 
 
 
