@@ -15,7 +15,10 @@ fin exemple -->
 
 ## La programmation est bien sûr perturbée...
 Visitez régulièrement le site !
-A noter chaque 28 du mois c'est réunion prog'
+
+## Reunion Prog'
+** Tous les 28 du mois
+A 19h 
 
 
 ## Livraison des paniers de producteurs « Cagettes »
