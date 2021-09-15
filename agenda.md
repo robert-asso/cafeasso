@@ -16,10 +16,19 @@ fin exemple -->
 ## La programmation est bien sûr perturbée...
 Visitez régulièrement le site !
 
-## Prog' permanente
+## La prog' permanente
+
+L'adhésion annuelle à l'association lézidéfuz est de 6€/pers et 12€/famille.
+En accès libre pour les adhérents.
+Adhésion de passage possible.
+
+Lors de ces soirées le bar est ouvert.
+
+
 ** Réunion Prog' **
 
 Tous les 28 du mois à 19h - ouvert à tout.e.s
+
 
 
 ** Livraison des paniers de producteurs « Cagettes » **
@@ -30,13 +39,19 @@ Plus d'infos :
 
 https://app.cagette.net/home
 
+
+
 ** Café Oc' **
 
 Tous les 2èmes mardi de chaque mois de 19h à 22h
 
+
+
 ** Café Décroissant' **
 
 Tous les 3èmes vendredis de chaque mois à 19h30
+
+
 
 ** Café Tricot **
 
@@ -44,6 +59,8 @@ Tous les 4èmes dimanches de chaque mois à 15h
 
 <img width="691" alt="Café tricot" src="https://user-images.githubusercontent.com/77194514/132258126-2237668e-bc70-4688-9b77-b1c282652e94.png">
 https://france3-regions.francetvinfo.fr/nouvelle-aquitaine/dordogne/perigord/leguillac-cercle-24-on-tricote-du-lien-social-1401993.html
+
+
 
 ** Café Philo **
 
@@ -60,8 +77,6 @@ Souleymane et Cécile sont partis fin 2019 au Sénégal pour construire le premi
 
 ![Sans-titre-1](https://user-images.githubusercontent.com/77194514/128901371-8cc3c64a-be7c-412b-804b-53456952fe56.jpg)
 
-
-A dimanche
 
 #### 18 & 19 Septembre (annulé)
 
