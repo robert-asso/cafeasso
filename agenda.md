@@ -88,7 +88,9 @@ Souleymane et Cécile sont partis fin 2019 au Sénégal pour construire le premi
 #### Vendredi 24 Septembre
 ## soirée "ciné doc"  
 ** 20h **
+
 ![Ciné Doc](https://user-images.githubusercontent.com/77194514/133459596-3d23124d-d135-422c-b350-f06d00fdb382.jpeg)
+
 
 Soirée "Ciné Doc" autour du film :" VIVANT!"  
 Découvrons ensemble  un de ces documentaires qui nous  parlent de vie!  
