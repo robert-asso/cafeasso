@@ -34,7 +34,7 @@ https://app.cagette.net/home
 
 19h-22h
 
-## Café Collap's
+## Café Décroissant'
 ** Tous les 3èmes vendredis de chaque mois **
 
 19h30
@@ -70,6 +70,19 @@ A dimanche
 
 ## PETITS TOITS D'ETOILES (annulé)
 ** Evénement annulé **
+
+#### Vendredi 24 Septembre
+## soirée "ciné doc"  
+** 20h **
+![Ciné Doc](https://user-images.githubusercontent.com/77194514/133459596-3d23124d-d135-422c-b350-f06d00fdb382.jpeg)
+
+Soirée "Ciné Doc" autour du film :" VIVANT!"  
+Découvrons ensemble  un de ces documentaires qui nous  parlent de vie!  
+ 
+ 
+Le sujet: Cinq garçons - gays et séropositifs - font le pari de sauter en parachute et de se frotter à cet univers sportif si loin de leur personnalité. Dans ce film drôle et d’une énergie contagieuse, ils vont éprouver cette fraction de seconde où l’on se décide à plonger dans l’inconnu, où l’on prend conscience de l’ampleur du monde et de l’intensité de la vie. Progressivement des liens se nouent dans le groupe et les langues se délient : on parle d’avenir et d’amour comme on n'en cause rarement entre hommes.
+
+Un chapeau circulera pour les droits de diffusions.
 
 
 
