@@ -19,7 +19,9 @@ Visitez régulièrement le site !
 ## La prog' permanente
 
 L'adhésion annuelle à l'association lézidéfuz est de 6€/pers et 12€/famille.
+
 En accès libre pour les adhérents.
+
 Adhésion de passage possible.
 
 Lors de ces soirées le bar est ouvert.
