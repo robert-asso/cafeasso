@@ -16,41 +16,32 @@ fin exemple -->
 ## La programmation est bien sûr perturbée...
 Visitez régulièrement le site !
 
-## Reunion Prog'
-** Tous les 28 du mois
+## Prog' permanente
+** Réunion Prog' **
+Tous les 28 du mois à 19h - ouvert à tout.e.s
 
-A 19h 
 
-
-## Livraison des paniers de producteurs « Cagettes »
-** Tous les 2èmes vendredi de chaque mois **
+** Livraison des paniers de producteurs « Cagettes » **
+Tous les 2èmes vendredi de chaque mois
 
 Plus d'infos :
 
 https://app.cagette.net/home
 
-## Café Oc'
-** Tous les 2èmes mardi de chaque mois **
+** Café Oc' **
+Tous les 2èmes mardi de chaque mois de 19h à 22h
 
-19h-22h
+** Café Décroissant' **
+Tous les 3èmes vendredis de chaque mois à 19h30
 
-## Café Décroissant'
-** Tous les 3èmes vendredis de chaque mois **
-
-19h30
-
-## Café Tricot
-** Tous les 4èmes dimanches de chaque mois **
-
-15h
+** Café Tricot **
+Tous les 4èmes dimanches de chaque mois à 15h
 
 <img width="691" alt="Café tricot" src="https://user-images.githubusercontent.com/77194514/132258126-2237668e-bc70-4688-9b77-b1c282652e94.png">
 https://france3-regions.francetvinfo.fr/nouvelle-aquitaine/dordogne/perigord/leguillac-cercle-24-on-tricote-du-lien-social-1401993.html
 
-## Café Philo
-** Tous les 4èmes dimanches de chaque mois **
-
-16h
+** Café Philo **
+Tous les 4èmes dimanches de chaque mois à 16h
 
 
 
