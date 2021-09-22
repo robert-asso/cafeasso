@@ -100,6 +100,21 @@ Le sujet: Cinq garçons - gays et séropositifs - font le pari de sauter en para
 
 Un chapeau circulera pour les droits de diffusions.
 
+#### Dimanche 3 octobre
+## Fred Dubonnet - " La ferme du Bois Fleury"
+** 20h30 **
+
+Dans les années 70, deux frères se partagent une ferme. L’un va profiter de
+la « révolution verte » et cultiver des céréales en conventionnel, l’autre va
+plutôt expérimenter le petit maraîchage. Pendant cinquante ans nous allons
+les croiser régulièrement à l’apéro. Ils parlent d’agriculture, de politique et
+de femmes... tout un programme.
+
+Spectacle tout public. Entre désaccords et fraternité, ce seul en scène nous
+livre un récit rythmé, où le rire et l’émotion se succèdent. Un voyage dans
+l’histoire de l’agriculture française par deux points de vue diamétralement
+opposés. 
+
 
 
 
