@@ -102,7 +102,7 @@ Un chapeau circulera pour les droits de diffusions.
 
 #### Dimanche 3 octobre
 ## Fred Dubonnet - " La ferme du Bois Fleury"
-** 20h30 **
+** 20h30 - entrée : libre / sortie : au chapeau **
 
 Dans les années 70, deux frères se partagent une ferme. L’un va profiter de
 la « révolution verte » et cultiver des céréales en conventionnel, l’autre va
@@ -114,6 +114,8 @@ Spectacle tout public. Entre désaccords et fraternité, ce seul en scène nous
 livre un récit rythmé, où le rire et l’émotion se succèdent. Un voyage dans
 l’histoire de l’agriculture française par deux points de vue diamétralement
 opposés. 
+
+![Dubonnet](https://user-images.githubusercontent.com/77194514/134544329-87238a86-92ac-40a0-9828-76b2810c72db.jpeg)
 
 
 
