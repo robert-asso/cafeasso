@@ -25,39 +25,39 @@ En accès libre pour les adhérents.
 Adhésion de passage possible.
 
 Lors de ces soirées le bar est ouvert.  
-
+  
 
 
 ** Atelier Théatre **
 chaque mercredi après-midi.  
-
+  
 Enfants 15h-16h30 
 Ados 17h-19h 
 Adultes 20h-23h  
-
+  
 Commence le 6 octobre.
 Animé par Isis Eymery : 06 75 60 85 11.    
-
+  
 
 ** Danse libre **
 2ème samedi de chaque mois de 14h30-16h30  
-
+  
 Commence le 9 octobre, tarif en conscience 10-20€ la scéance.
 Animé par Violaine Debien : 06 64 17 06 02  
-
+  
 
 ** Gym bien-être **
 1er et 3ème jeudi de chaque mois, 19h30-20h30
+  
 commence le 7 octobre, tarif en conscience 7-12€ la scéance. 
 Animé par Violaine Debien : 06 64 17 06 02
       
-
+  
 
 ** Réunion Prog' **
 
 Tous les 28 du mois à 19h - ouvert à tout.e.s
-
-
+  
 
 ** Livraison des paniers de producteurs « Cagettes » **
 
@@ -65,36 +65,36 @@ Tous les 2èmes vendredi de chaque mois
 
 Plus d'infos :
 
-https://app.cagette.net/home
+https://app.cagette.net/home  
 
-
+  
 
 ** Café Oc' **
 
-Tous les 2èmes mardi de chaque mois de 19h à 22h
+Tous les 2èmes mardi de chaque mois de 19h à 22h  
 
-
+  
 
 ** Café Décroissant' **
 
-Tous les 3èmes vendredis de chaque mois à 19h30
+Tous les 3èmes vendredis de chaque mois à 19h30  
 
-
+  
 
 ** Café Tricot **
 
 Tous les 4èmes dimanches de chaque mois à 15h
 
 <img width="691" alt="Café tricot" src="https://user-images.githubusercontent.com/77194514/132258126-2237668e-bc70-4688-9b77-b1c282652e94.png">
-https://france3-regions.francetvinfo.fr/nouvelle-aquitaine/dordogne/perigord/leguillac-cercle-24-on-tricote-du-lien-social-1401993.html
+https://france3-regions.francetvinfo.fr/nouvelle-aquitaine/dordogne/perigord/leguillac-cercle-24-on-tricote-du-lien-social-1401993.html  
 
-
+  
 
 ** Café Philo **
 
-Tous les 4èmes dimanches de chaque mois à 16h
+Tous les 4èmes dimanches de chaque mois à 16h  
 
-
+  
 
 #### Du 30 juillet à mi-septembre
 
