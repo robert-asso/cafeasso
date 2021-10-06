@@ -37,9 +37,7 @@ chaque mercredi après-midi.
 <br/> 
 
 * Enfants 15h-16h30
-<br/>
 * Ados 17h-19h
-<br/>
 * Adultes 20h-23h  
 <br/> 
 
