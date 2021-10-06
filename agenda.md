@@ -32,7 +32,6 @@ Lors de ces soirées le bar est ouvert.
 
 ** Atelier Théatre **
 
-<br/>
 chaque mercredi après-midi.  
 <br/> 
 
