@@ -63,6 +63,15 @@ Animé par Violaine Debien : 06 64 17 06 02
 <br/>     
 <br/>  
 
+** Scène ouverte **
+
+le 1er vendredi de chaque mois.
+<br/> 
+1ère scène, le 05 novembre. 
+<br/> 
+
+Contact Thibault : thdharveng@yahoo.fr
+
 ** Réunion Prog' **
 
 Tous les 28 du mois à 19h - ouvert à tout.e.s
