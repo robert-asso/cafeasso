@@ -29,11 +29,14 @@ Lors de ces soirées le bar est ouvert.
 <br/>  
 <br/>
 ** Atelier Théatre **
+<br/>
 chaque mercredi après-midi.  
 <br/> 
 
-Enfants 15h-16h30 
-Ados 17h-19h 
+Enfants 15h-16h30
+<br/>
+Ados 17h-19h
+<br/>
 Adultes 20h-23h  
 <br/> 
 
