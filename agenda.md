@@ -27,6 +27,32 @@ Adhésion de passage possible.
 Lors de ces soirées le bar est ouvert.
 
 
+
+** Atelier Théatre **
+chaque mercredi après-midi.
+
+Enfants 15h-16h30 
+Ados 17h-19h 
+Adultes 20h-23h
+
+Commence le 6 octobre.
+Animé par Isis Eymery : 06 75 60 85 11.  
+
+
+** Danse libre **
+2ème samedi de chaque mois de 14h30-16h30
+
+Commence le 9 octobre, tarif en conscience 10-20€ la scéance.
+Animé par Violaine Debien : 06 64 17 06 02
+
+
+** Gym bien-être **
+1er et 3ème jeudi de chaque mois, 19h30-20h30
+commence le 7 octobre, tarif en conscience 7-12€ la scéance. 
+Animé par Violaine Debien : 06 64 17 06 02
+      
+
+
 ** Réunion Prog' **
 
 Tous les 28 du mois à 19h - ouvert à tout.e.s
