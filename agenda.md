@@ -15,6 +15,7 @@ fin exemple -->
 
 ## La programmation est bien sûr perturbée...
 Visitez régulièrement le site !
+<br/>
 
 ## La prog' permanente
 
@@ -26,25 +27,27 @@ Adhésion de passage possible.
 
 Lors de ces soirées le bar est ouvert.  
 <br/>  
-
-
+<br/>
 ** Atelier Théatre **
 chaque mercredi après-midi.  
-<br/>  
+<br/> 
+
 Enfants 15h-16h30 
 Ados 17h-19h 
 Adultes 20h-23h  
-<br/>  
+<br/> 
+
 Commence le 6 octobre.
 Animé par Isis Eymery : 06 75 60 85 11.    
-  
-
+<br/>
+<br/>
 ** Danse libre **
 2ème samedi de chaque mois de 14h30-16h30  
  <br/> 
-Commence le 9 octobre, tarif en conscience 10-20€ la scéance.
+Commence le 9 octobre, tarif en conscience 10-20€ la scéance.  
+<br/>
 Animé par Violaine Debien : 06 64 17 06 02  
-  
+<br/>
 <br/>
 ** Gym bien-être **
 1er et 3ème jeudi de chaque mois, 19h30-20h30
