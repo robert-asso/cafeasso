@@ -57,7 +57,8 @@ Animé par Violaine Debien : 06 64 17 06 02
 <br/>
 1er et 3ème jeudi de chaque mois, 19h30-20h30
 <br/>  
-commence le 7 octobre, tarif en conscience 7-12€ la scéance. 
+commence le 7 octobre, tarif en conscience 7-12€ la scéance.
+<br/> 
 Animé par Violaine Debien : 06 64 17 06 02
 <br/>     
 <br/>  
