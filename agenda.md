@@ -25,33 +25,33 @@ En accès libre pour les adhérents.
 Adhésion de passage possible.
 
 Lors de ces soirées le bar est ouvert.  
-  
+<br/>  
 
 
 ** Atelier Théatre **
 chaque mercredi après-midi.  
-  
+<br/>  
 Enfants 15h-16h30 
 Ados 17h-19h 
 Adultes 20h-23h  
-  
+<br/>  
 Commence le 6 octobre.
 Animé par Isis Eymery : 06 75 60 85 11.    
   
 
 ** Danse libre **
 2ème samedi de chaque mois de 14h30-16h30  
-  
+ <br/> 
 Commence le 9 octobre, tarif en conscience 10-20€ la scéance.
 Animé par Violaine Debien : 06 64 17 06 02  
   
-
+<br/>
 ** Gym bien-être **
 1er et 3ème jeudi de chaque mois, 19h30-20h30
-  
+<br/>  
 commence le 7 octobre, tarif en conscience 7-12€ la scéance. 
 Animé par Violaine Debien : 06 64 17 06 02
-      
+<br/>     
   
 
 ** Réunion Prog' **
@@ -104,46 +104,6 @@ Tous les 4èmes dimanches de chaque mois à 16h
 Souleymane et Cécile sont partis fin 2019 au Sénégal pour construire le premier haut fourneau école d'Afrique pour permettre aux populations de transformer leur minerai en fer. Cette exposition photographique retrace les débuts de cette aventure extraordinaire. Tout d'abord les premières étapes de la construction du haut fourneau puis le travail des femmes dans la pépinière dont les arbres serviront de combustible. 
 
 ![Sans-titre-1](https://user-images.githubusercontent.com/77194514/128901371-8cc3c64a-be7c-412b-804b-53456952fe56.jpg)
-
-
-#### 18 & 19 Septembre (annulé)
-
-## PETITS TOITS D'ETOILES (annulé)
-** Evénement annulé **
-
-#### Vendredi 24 Septembre
-## soirée "ciné doc"  
-** 20h **
-
-![Ciné Doc](https://user-images.githubusercontent.com/77194514/133459596-3d23124d-d135-422c-b350-f06d00fdb382.jpeg)
-
-
-Soirée "Ciné Doc" autour du film :" VIVANT!"  
-Découvrons ensemble  un de ces documentaires qui nous  parlent de vie!  
- 
- 
-Le sujet: Cinq garçons - gays et séropositifs - font le pari de sauter en parachute et de se frotter à cet univers sportif si loin de leur personnalité. Dans ce film drôle et d’une énergie contagieuse, ils vont éprouver cette fraction de seconde où l’on se décide à plonger dans l’inconnu, où l’on prend conscience de l’ampleur du monde et de l’intensité de la vie. Progressivement des liens se nouent dans le groupe et les langues se délient : on parle d’avenir et d’amour comme on n'en cause rarement entre hommes.
-
-Un chapeau circulera pour les droits de diffusions.
-
-#### Dimanche 3 octobre
-## Fred Dubonnet - " La ferme du Bois Fleury"
-** 20h30 - entrée : libre / sortie : au chapeau **
-
-Dans les années 70, deux frères se partagent une ferme. L’un va profiter de
-la « révolution verte » et cultiver des céréales en conventionnel, l’autre va
-plutôt expérimenter le petit maraîchage. Pendant cinquante ans nous allons
-les croiser régulièrement à l’apéro. Ils parlent d’agriculture, de politique et
-de femmes... tout un programme.
-
-Spectacle tout public. Entre désaccords et fraternité, ce seul en scène nous
-livre un récit rythmé, où le rire et l’émotion se succèdent. Un voyage dans
-l’histoire de l’agriculture française par deux points de vue diamétralement
-opposés. 
-
-![Dubonnet](https://user-images.githubusercontent.com/77194514/134544329-87238a86-92ac-40a0-9828-76b2810c72db.jpeg)
-
-
 
 
 
