@@ -28,18 +28,19 @@ Adhésion de passage possible.
 
 Lors de ces soirées le bar est ouvert.  
 <br/>  
-<br/>
-Atelier Théatre
-==
+<br/> 
+
+** Atelier Théatre **
+
 <br/>
 chaque mercredi après-midi.  
 <br/> 
 
-Enfants 15h-16h30
++Enfants 15h-16h30
 <br/>
-Ados 17h-19h
++Ados 17h-19h
 <br/>
-Adultes 20h-23h  
++Adultes 20h-23h  
 <br/> 
 
 Commence le 6 octobre.
