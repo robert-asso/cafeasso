@@ -29,7 +29,8 @@ Adhésion de passage possible.
 Lors de ces soirées le bar est ouvert.  
 <br/>  
 <br/>
-** Atelier Théatre **
+Atelier Théatre
+==
 <br/>
 chaque mercredi après-midi.  
 <br/> 
