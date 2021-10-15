@@ -74,6 +74,8 @@ A partir de 19h 30
 Scène musicale ouverte aux musiciens, chanteurs, slameurs et autres ...
 
 Contact Thibault : thdharveng@yahoo.fr
+<br/>  
+<br/> 
 
 ** Réunion Prog' **
 
