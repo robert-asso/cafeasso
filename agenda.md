@@ -69,6 +69,9 @@ le 1er vendredi de chaque mois.
 <br/> 
 1ère scène, le 05 novembre. 
 <br/> 
+A partir de 19h 30
+
+Scène musicale ouverte aux musiciens, chanteurs, slameurs et autres ...
 
 Contact Thibault : thdharveng@yahoo.fr
 
