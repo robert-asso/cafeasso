@@ -68,7 +68,7 @@ Animé par Violaine Debien : 06 64 17 06 02
 ** Scène ouverte **
 le 1er vendredi de chaque mois.
 <br/> 
-
+<br/>
 
 ** Réunion Prog' **
 
@@ -124,30 +124,30 @@ Tous les 4èmes dimanches de chaque mois à 16h
 Contact: Toby: 06 04 45 19 39
 <br/>
 <br/>
+**Cagette:**
+A partir  d'aujourd'hui et jusqu'à nouvel ordre il n'y aura plus de commandes ni de  livraison  de cagettes au café
 <br/>
-
+<br/>
+<br/>
 ## La prog' au jour le jour
 <br/>     
 <br/>
-Vendredi 05 Novembre à partir de 19h30:
+** Vendredi 05 Novembre à partir de 19h30: **
 Première scène  ouverte aux musiciens , chanteurs, slameurs et autres poètes...
  
-Samedi 06 novembre à 17h30:
+** Samedi 06 novembre à 17h30: **
 Salle des fêtes de Léguillac, conférence de Gabriel Duverneuil "Hisroire de Léguillac des origines à la guerre de 14/18"
 .Pass sanitaire demandé
 A 19h le bar du café sera ouvert pour continuer la soirée.
  
-Samedi 27 novembre à 14h:
+** Samedi 27 novembre à 14h: **
 La méthode Feldenkrais, "pour revisiter son shéma corporel"
 Séance de découverte animée par Isabelle Lasserre de Bordeaux
 35€ la séance de découverte,  limitée à 6/8 personnes
 Renseignement et inscription: cybele.calvat@gmail.com
- 
-Cagette:
-A partir  d'aujourd'hui et jusqu'à nouvel ordre il n'y aura plus de commandes ni de  livraison  de cagettes au café
- 
-
-Vendredi 05 novembre. A partir de 19h 30
+<br/> 
+<br/>
+ ** Vendredi 05 novembre. A partir de 19h 30 **
 
 Scène musicale ouverte aux musiciens, chanteurs, slameurs et autres poètes...
 
@@ -155,7 +155,7 @@ Contact Thibault : thdharveng@yahoo.fr
 <br/>  
 <br/> 
 
-Samedi 06 novembre à 17h30:
+** Samedi 06 novembre à 17h30: **
 Salle des fêtes de Léguillac
 Conférence de Gabriel Duverneuil "Hisroire de Léguillac des origines à la guerre de 14/18"
 Pass sanitaire 
@@ -163,7 +163,7 @@ Pass sanitaire
 A 19h le bar du café sera ouvert pour continuer la soirée.
 <br/>
 <br/>
-Samedi 27 novembre à 14h:
+** Samedi 27 novembre à 14h: **
 La méthode Feldenkrais:
 "pour revisiter son shéma corporel"
 <br/>
