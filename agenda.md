@@ -98,6 +98,7 @@ https://app.cagette.net/home
 
 Tous les 2èmes mardi de chaque mois de 19h à 22h  
 Repas en auberge espagnol, apportez vos couverts.
+
 Contact: Luc / 06 26 47 43 94
 <br/>
 <br/>
@@ -126,7 +127,8 @@ https://france3-regions.francetvinfo.fr/nouvelle-aquitaine/dordogne/perigord/leg
 
 ** Café Philo **
 
-Tous les 4èmes dimanches de chaque mois à 16h  
+Tous les 4èmes dimanches de chaque mois à 16h 
+Contact: Toby: 06 04 45 19 39
 
 <br/>
 <br/>
