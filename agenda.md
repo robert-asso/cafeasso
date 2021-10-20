@@ -85,7 +85,7 @@ Tous les 28 du mois à 19h - ouvert à tout.e.s
 
 ** Livraison des paniers de producteurs « Cagettes » **
 
-Tous les 2èmes vendredi de chaque mois
+A partir de novembre ce service est interrompu au café associatif.
 
 Plus d'infos :
 
@@ -97,6 +97,8 @@ https://app.cagette.net/home
 ** Café Oc' **
 
 Tous les 2èmes mardi de chaque mois de 19h à 22h  
+Repas en auberge espagnol, apportez vos couverts.
+Contact: Luc / 06 26 47 43 94
 <br/>
 <br/>
   
@@ -113,7 +115,9 @@ Tous les 3èmes vendredis de chaque mois à 19h30
 Tous les 4èmes dimanches de chaque mois à 15h
 <br/>
 <br/>
-
+Contact: Claudette: 06 62 21 63 00
+<br/>
+<br/>
 <img width="691" alt="Café tricot" src="https://user-images.githubusercontent.com/77194514/132258126-2237668e-bc70-4688-9b77-b1c282652e94.png">
 https://france3-regions.francetvinfo.fr/nouvelle-aquitaine/dordogne/perigord/leguillac-cercle-24-on-tricote-du-lien-social-1401993.html  
 <br/>
