@@ -27,6 +27,8 @@ En accès libre pour les adhérents.
 Adhésion de passage possible.
 
 Lors de ces soirées le bar est ouvert.  
+![51559780227_4fcd00699d_c](https://user-images.githubusercontent.com/77194514/138118892-19e2d49f-4e11-4d22-a5fe-37211b4db673.jpg)
+
 <br/>  
 <br/> 
 
