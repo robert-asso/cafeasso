@@ -89,7 +89,7 @@ https://app.cagette.net/home
 
 ** Café Oc' **
 
-Tous les 2èmes mardi de chaque mois de 19h à 22h  
+2èmes mardi de chaque mois de 19h à 22h  
 Repas en auberge espagnol, apportez vos couverts.
 
 Contact: Luc / 06 26 47 43 94
@@ -99,14 +99,14 @@ Contact: Luc / 06 26 47 43 94
 
 ** Café Décroissant' **
 
-Tous les 3èmes vendredis de chaque mois à 19h30  
+3èmes vendredis de chaque mois à 19h30  
 <br/>
 <br/>
   
 
 ** Café Tricot **
 
-Tous les 4èmes dimanches de chaque mois à 15h
+4èmes dimanches de chaque mois à 15h
 <br/>
 <br/>
 Contact: Claudette: 06 62 21 63 00
@@ -120,12 +120,8 @@ https://france3-regions.francetvinfo.fr/nouvelle-aquitaine/dordogne/perigord/leg
 
 ** Café Philo **
 
-Tous les 4èmes dimanches de chaque mois à 16h 
+4èmes dimanches de chaque mois à 16h 
 Contact: Toby: 06 04 45 19 39
-<br/>
-<br/>
-**Cagette:**
-A partir  d'aujourd'hui et jusqu'à nouvel ordre il n'y aura plus de commandes ni de  livraison  de cagettes au café
 <br/>
 <br/>
 <br/>
