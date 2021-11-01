@@ -89,8 +89,10 @@ https://app.cagette.net/home
 
 ** Café Oc' **
 
-2èmes mardi de chaque mois de 19h à 22h  
-Repas en auberge espagnol, apportez vos couverts.
+2ème mardi de chaque mois de 19h à 22h  
+Repas en auberge espagnole, apportez vos couverts.
+Chasdun pòrta son minjat,n'um boira tot aquò,e se parla occitan!
+
 
 Contact: Luc / 06 26 47 43 94
 <br/>
@@ -99,14 +101,14 @@ Contact: Luc / 06 26 47 43 94
 
 ** Café Décroissant' **
 
-3èmes vendredis de chaque mois à 19h30  
+3ème vendredi de chaque mois à 19h30  
 <br/>
 <br/>
   
 
 ** Café Tricot **
 
-4èmes dimanches de chaque mois à 15h
+4ème dimanche de chaque mois à 15h
 <br/>
 <br/>
 Contact: Claudette: 06 62 21 63 00
@@ -120,7 +122,7 @@ https://france3-regions.francetvinfo.fr/nouvelle-aquitaine/dordogne/perigord/leg
 
 ** Café Philo **
 
-4èmes dimanches de chaque mois à 16h 
+4ème dimanche de chaque mois à 16h 
 Contact: Toby: 06 04 45 19 39
 <br/>
 <br/>
