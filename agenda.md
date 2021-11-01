@@ -91,7 +91,7 @@ https://app.cagette.net/home
 
 2ème mardi de chaque mois de 19h à 22h  
 Repas en auberge espagnole, apportez vos couverts.
-Chasdun pòrta son minjat,n'um boira tot aquò,e se parla occitan!
+Chasdun pòrta son minjat, n'um boira tot aquò, e se parla occitan!
 
 
 Contact: Luc / 06 26 47 43 94
@@ -99,7 +99,7 @@ Contact: Luc / 06 26 47 43 94
 <br/>
   
 
-** Café Décroissant' **
+** Café Décroissant **
 
 3ème vendredi de chaque mois à 19h30  
 <br/>
@@ -122,7 +122,9 @@ https://france3-regions.francetvinfo.fr/nouvelle-aquitaine/dordogne/perigord/leg
 
 ** Café Philo **
 
-4ème dimanche de chaque mois à 16h 
+4ème dimanche de chaque mois à 16h
+<br/>
+<br/>
 Contact: Toby: 06 04 45 19 39
 <br/>
 <br/>
