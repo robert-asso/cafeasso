@@ -91,6 +91,7 @@ https://app.cagette.net/home
 
 2ème mardi de chaque mois de 19h à 22h  
 Repas en auberge espagnole, apportez vos couverts.
+<br/>
 Chasdun pòrta son minjat, n'um boira tot aquò, e se parla occitan!
 
 
