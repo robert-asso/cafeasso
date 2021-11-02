@@ -136,6 +136,8 @@ Contact: Toby: 06 04 45 19 39
 ** Vendredi 05 Novembre à partir de 19h30: **
 <br/>
 Première scène  ouverte aux musiciens , chanteurs, slameurs et autres poètes...
+Le bar sera ouvert, bien sûr vous pouvez apporter des tartes et des
+gâteaux, sucrés ou salés, qui seront en vente au bar.
  <br/>
  <br/>
 ** Samedi 06 novembre à 17h30: **
@@ -148,7 +150,30 @@ Pass sanitaire
 <br/>
 <br/>
 A 19h le bar du café sera ouvert pour continuer la soirée.
- 
+<br/>
+<br/>
+Conférence de Sylvain Pellerin 
+vendredi 19 novembre de 14h à 17h30
+<br/>
+ "Atténuation du changement climatique: aller vers une agriculture faiblement carbonnée."
+ <br/>
+  Sylvain Pellerin est chercheur à l' INRAE pour Acclimaterra.
+https://www.academie-agriculture.fr/membres/annuaire/sylvain-pellerin
+<br/>
+<br/>
+Café allemand 
+<br/>
+lundi 22 novembre à 18h
+Retenez la date, plus d'info à venir...
+Contact: Aurore 06 68 16 29 98
+<br/>
+<br/> 
+Soirée Ciné-repas
+<br/>
+vendredi 26 novembre
+ ... plus d'infos suivront!!
+ <br/>
+ <br/>
 ** Samedi 27 novembre à 14h: **
 <br/>
 La méthode Feldenkrais, "pour revisiter son shéma corporel"
@@ -160,9 +185,14 @@ Séance de découverte animée par Isabelle Lasserre de Bordeaux
 Renseignement et inscription: cybele.calvat@gmail.com
 <br/> 
 <br/>
-
+ Assemblée Générale de notre asso "Lézidéfuz"
+ <br/>
+  Dimanche 5 décembre à 14h30
+  le Café sera ouvert dès 14h.
+  
 #### Du 30 juillet à fin octobre
-
+<br/> 
+<br/>
 ## Exposition de photos : 1er haut fourneau d'Afrique
 ** Visible lors des événements du café **
 
