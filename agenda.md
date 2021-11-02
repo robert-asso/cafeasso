@@ -135,12 +135,14 @@ Contact: Toby: 06 04 45 19 39
 <br/>
 ** Vendredi 05 Novembre à partir de 19h30: **
 <br/>
+<br/>
 Première scène  ouverte aux musiciens , chanteurs, slameurs et autres poètes...
 Le bar sera ouvert, bien sûr vous pouvez apporter des tartes et des
 gâteaux, sucrés ou salés, qui seront en vente au bar.
  <br/>
  <br/>
 ** Samedi 06 novembre à 17h30: **
+<br/>
 <br/>
 Salle des fêtes de Léguillac.
 <br/>
@@ -154,6 +156,7 @@ A 19h le bar du café sera ouvert pour continuer la soirée.
 <br/>
 ** vendredi 19 novembre de 14h à 17h30: ** 
 <br/>
+<br/>
 Conférence de Sylvain Pellerin 
 <br/>
  "Atténuation du changement climatique: aller vers une agriculture faiblement carbonnée."
@@ -163,13 +166,18 @@ https://www.academie-agriculture.fr/membres/annuaire/sylvain-pellerin
 <br/>
 <br/>
 ** lundi 22 novembre à 18h **
+<br/>
+<br/>
 Café allemand  
 <br/>
 Retenez la date, plus d'info à venir...
+<br/>
 Contact: Aurore 06 68 16 29 98
 <br/>
 <br/> 
 ** vendredi 26 novembre ** 
+<br/>
+<br/>
 Soirée Ciné-repas ** 
 <br/>
  ... plus d'infos suivront!!
@@ -186,7 +194,7 @@ Séance de découverte animée par Isabelle Lasserre de Bordeaux
 Renseignement et inscription: cybele.calvat@gmail.com
 <br/> 
 <br/>
- Assemblée Générale de notre asso "Lézidéfuz"
+** Assemblée Générale de notre asso "Lézidéfuz" ** 
  <br/>
   Dimanche 5 décembre à 14h30
   le Café sera ouvert dès 14h.
