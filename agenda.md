@@ -194,9 +194,10 @@ Séance de découverte animée par Isabelle Lasserre de Bordeaux
 Renseignement et inscription: cybele.calvat@gmail.com
 <br/> 
 <br/>
-** Assemblée Générale de notre asso "Lézidéfuz" ** 
+** Assemblée Générale de notre asso "Lézidéfuz": ** 
  <br/>
   Dimanche 5 décembre à 14h30
+  <br/>
   le Café sera ouvert dès 14h.
   
 #### Du 30 juillet à fin octobre
