@@ -105,7 +105,7 @@ Contact: Luc / 06 26 47 43 94
 3ème vendredi de chaque mois à 19h30  
 <br/>
 <br/>
-  
+Contact: thdharveng@yahoo.fr
 
 ** Café Tricot **
 
@@ -152,8 +152,9 @@ Pass sanitaire
 A 19h le bar du café sera ouvert pour continuer la soirée.
 <br/>
 <br/>
+** vendredi 19 novembre de 14h à 17h30: ** 
+<br/>
 Conférence de Sylvain Pellerin 
-vendredi 19 novembre de 14h à 17h30
 <br/>
  "Atténuation du changement climatique: aller vers une agriculture faiblement carbonnée."
  <br/>
@@ -161,16 +162,16 @@ vendredi 19 novembre de 14h à 17h30
 https://www.academie-agriculture.fr/membres/annuaire/sylvain-pellerin
 <br/>
 <br/>
-Café allemand 
+** lundi 22 novembre à 18h **
+Café allemand  
 <br/>
-lundi 22 novembre à 18h
 Retenez la date, plus d'info à venir...
 Contact: Aurore 06 68 16 29 98
 <br/>
 <br/> 
-Soirée Ciné-repas
+** vendredi 26 novembre ** 
+Soirée Ciné-repas ** 
 <br/>
-vendredi 26 novembre
  ... plus d'infos suivront!!
  <br/>
  <br/>
