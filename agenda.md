@@ -154,7 +154,7 @@ Pass sanitaire
 A 19h le bar du café sera ouvert pour continuer la soirée.
 <br/>
 <br/>
-** vendredi 19 novembre de 14h à 17h30: ** 
+** vendredi 19 novembre de 14h à 17h30: 
 <br/>
 <br/>
 Conférence de Sylvain Pellerin 
@@ -165,7 +165,7 @@ Conférence de Sylvain Pellerin
 https://www.academie-agriculture.fr/membres/annuaire/sylvain-pellerin
 <br/>
 <br/>
-** lundi 22 novembre à 18h **
+** lundi 22 novembre à 18h 
 <br/>
 <br/>
 Café allemand  
@@ -175,15 +175,15 @@ Retenez la date, plus d'info à venir...
 Contact: Aurore 06 68 16 29 98
 <br/>
 <br/> 
-** vendredi 26 novembre ** 
+** vendredi 26 novembre 
 <br/>
 <br/>
-Soirée Ciné-repas ** 
+Soirée Ciné-repas 
 <br/>
  ... plus d'infos suivront!!
  <br/>
  <br/>
-** Samedi 27 novembre à 14h: **
+** Samedi 27 novembre à 14h: 
 <br/>
 La méthode Feldenkrais, "pour revisiter son shéma corporel"
 <br/>
@@ -194,21 +194,16 @@ Séance de découverte animée par Isabelle Lasserre de Bordeaux
 Renseignement et inscription: cybele.calvat@gmail.com
 <br/> 
 <br/>
-** Assemblée Générale de notre asso "Lézidéfuz": ** 
+** Assemblée générale de "LEZIDEFUZ" **
  <br/>
   Dimanche 5 décembre à 14h30
   <br/>
   le Café sera ouvert dès 14h.
   
-#### Du 30 juillet à fin octobre
-<br/> 
-<br/>
-## Exposition de photos : 1er haut fourneau d'Afrique
-** Visible lors des événements du café **
 
-Souleymane et Cécile sont partis fin 2019 au Sénégal pour construire le premier haut fourneau école d'Afrique pour permettre aux populations de transformer leur minerai en fer. Cette exposition photographique retrace les débuts de cette aventure extraordinaire. Tout d'abord les premières étapes de la construction du haut fourneau puis le travail des femmes dans la pépinière dont les arbres serviront de combustible. 
 
-![Sans-titre-1](https://user-images.githubusercontent.com/77194514/128901371-8cc3c64a-be7c-412b-804b-53456952fe56.jpg)
+
+
 
 
 
