@@ -194,9 +194,9 @@ Séance de découverte animée par Isabelle Lasserre de Bordeaux
 Renseignement et inscription: cybele.calvat@gmail.com
 <br/> 
 <br/>
-** Assemblée générale de "LEZIDEFUZ" **
+## Assemblée générale Lezidefuz
  <br/>
-  Dimanche 5 décembre à 14h30
+ ** Dimanche 05 décembre à 14h30  **
   <br/>
   le Café sera ouvert dès 14h.
   
