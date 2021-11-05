@@ -177,13 +177,12 @@ Contact: Aurore 06 68 16 29 98
 <br/> 
 ** vendredi 26 novembre 
 <br/>
-<br/>
 Soirée Ciné-repas 
 <br/>
  ... plus d'infos suivront!!
  <br/>
  <br/>
-** Samedi 27 novembre à 14h: 
+** samedi 27 novembre à 14h  **
 <br/>
 La méthode Feldenkrais, "pour revisiter son shéma corporel"
 <br/>
@@ -195,7 +194,6 @@ Renseignement et inscription: cybele.calvat@gmail.com
 <br/> 
 <br/>
 ## Assemblée générale Lezidefuz
- <br/>
  ** Dimanche 05 décembre à 14h30  **
   <br/>
   le Café sera ouvert dès 14h.
