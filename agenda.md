@@ -185,9 +185,10 @@ Bona dimenjada
 <br/>
 Conférence de Sylvain Pellerin 
 <br/>
- "Atténuation du changement climatique: aller vers une agriculture faiblement carbonnée."
+ Atténuation du changement climatique: aller vers une agriculture faiblement carbonnée.
  <br/>
   Sylvain Pellerin est chercheur à l' INRAE pour Acclimaterra.
+  
 https://www.academie-agriculture.fr/membres/annuaire/sylvain-pellerin
 <br/>
 <br/>
