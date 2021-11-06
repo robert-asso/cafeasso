@@ -154,6 +154,32 @@ Pass sanitaire
 A 19h le bar du café sera ouvert pour continuer la soirée.
 <br/>
 <br/>
+** Samedi 09 novembre à 19h00: **
+<br/>
+Café Oc 
+<br/>
+Adiussiatz monde daus ranvers, et d'ailleursss,
+
+Queu dimars lo 9 dau mes mòrt, qui se trouve être ce mardi 9 novembre, 
+Au Café Associatif de Léguillac de Cercle (commune nouvelle de Mareuil la Gourmande),
+farem nòstre cafè òc mesadier (per memòria, segond dimars dau mes) en compania de :
+
+Jean-Michel LAHIEYTE
+pour la sortie de son livre "LES MERLES",
+ouvrage écrit à partir des témoignages qu'il a recueillis sur un épisode de la résistance en Nord Périgord durant l'année 1944 (de veire la presentacion çai-junhada)
+
+Remembrança ciá que (pour rappel) :
+
+Lo cafè òc foncciona partir de las 7 oras de l'enser, soit 19 h dans les anciennes écoles de Léguillac (derrière la mairie annexe)
+chadun e chadunas (donc toutes et tous) pòrtan un quauqua ren per minjar o far partajar ; un comestible par exemple  
+pensar de portar vòstres materiaus de taula / pensez aux couverts
+Lo beure es au comptador, la boisson au comptoir.
+
+Sens ne'n dire mai, à mardi 
+
+Bona dimenjada
+<br/>
+<br/>
 ** vendredi 19 novembre de 14h à 17h30: 
 <br/>
 <br/>
