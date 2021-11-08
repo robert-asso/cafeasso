@@ -217,7 +217,8 @@ Contact: Aurore 06 68 16 29 98
 <br/>
 Soirée Ciné-repas 
 <br/>
-!(https://live.staticflickr.com/65535/51664474708_0459612469_m.jpg)
+[Flyer Soiree vampires-1.pdf](https://github.com/robert-asso/cafeasso/files/7498220/Flyer.Soiree.vampires-1.pdf)
+
  <br/>
  <br/>
 ** samedi 27 novembre à 14h  **
