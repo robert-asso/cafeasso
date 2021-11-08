@@ -213,14 +213,10 @@ Bis bald, wir freuen uns!
 Contact: Aurore 06 68 16 29 98
 <br/>
 <br/> 
-** vendredi 26 novembre 
-<br/>
-Soirée Ciné-repas 
-<br/>
+**Le vendredi 26 novembre** 
+
 ![Capture d’écran 2021-11-08 à 15 59 15](https://user-images.githubusercontent.com/77194514/140773162-c409dfe6-26bc-4375-a36f-40a51664ff9c.png)
 <br/>
-Le vendredi 26 novembre au café associatif de Léguillac
-
 Dès 18h30
 Projection de “Vampires”de Vincent Lannoo et Frédérique Broos (90 min) : 
 vrai/faux documentaire sur une communauté de vampires belges.
