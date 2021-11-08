@@ -154,7 +154,7 @@ Pass sanitaire
 A 19h le bar du café sera ouvert pour continuer la soirée.
 <br/>
 <br/>
-** Samedi 09 novembre à 19h00: **
+** Mardi 09 novembre à 19h00: **
 <br/>
 Café Oc 
 <br/>
