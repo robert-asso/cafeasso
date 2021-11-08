@@ -218,7 +218,24 @@ Contact: Aurore 06 68 16 29 98
 Soirée Ciné-repas 
 <br/>
 ![Capture d’écran 2021-11-08 à 15 59 15](https://user-images.githubusercontent.com/77194514/140773162-c409dfe6-26bc-4375-a36f-40a51664ff9c.png)
+<br/>
+Le vendredi 26 novembre au café associatif de Léguillac
 
+Dès 18h30
+Projection de “Vampires”de Vincent Lannoo et Frédérique Broos (90 min) : 
+vrai/faux documentaire sur une communauté de vampires belges.
+
+Menu saignant :
+Kir et oeufs de lumps sur feuilles d’endives 
+Soupe tomates-vermicelles à l’encre de seiches 
+Tarte aux oignons confits -boudins sur salade trévise 
+Fromage blanc amandes grillées et son coulis de framboises 
+Le tout arrosé d’un verre de vin rouge.
+
+Sur réservation avant le 23 novembre au 06 26 47 43 94
+ou via mail : luc.caron0424@orange.fr
+
+Soirée à 15€ 
 
  <br/>
  <br/>
