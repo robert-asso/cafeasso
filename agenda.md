@@ -197,7 +197,18 @@ https://www.academie-agriculture.fr/membres/annuaire/sylvain-pellerin
 <br/>
 Café allemand  
 <br/>
-Retenez la date, plus d'info à venir...
+Willst du deutsch sprechen? Dann komm!!
+Am 22. November treffen wir uns um 18 Uhr (bis etwa 20:30) im Café associatif de Léguillac de Cercles (ehemalige Schule). 
+Das Programm: es gibt keins.  Komm mit was zum Knabbern, etwas zu erzählen (mit deinem letzten auswendig gelernten Gedicht von Heinrich Heine oder deinem deutschen Lieblingslied… ;–) oder einfach so wie du bist.
+
+Bring deine deutschsprechenden Freunde mit und sag uns Bescheid zu wie vielen ihr ungefähr kommt!
+
+Le café associatif tourne à l’énergie 100% bénévole: jeder spült sein Glas selber :-)  Il faut être adhérent pour pouvoir consommer au bar (adhésion annuelle ou de passage à prendre en arrivant). 
+
+Noch Fragen?
+Dann melde dich bei Aurore (aufor@wanadoo.fr) oder bei Susanne (0618958116)
+
+Bis bald, wir freuen uns!
 <br/>
 Contact: Aurore 06 68 16 29 98
 <br/>
