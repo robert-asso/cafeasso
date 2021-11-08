@@ -180,7 +180,7 @@ Sens ne'n dire mai, à mardi
 Bona dimenjada
 <br/>
 <br/>
-** vendredi 19 novembre de 14h à 17h30: 
+** Vendredi 19 Novembre de 14h00 à 17h30: **
 <br/>
 <br/>
 Conférence de Sylvain Pellerin 
@@ -192,7 +192,7 @@ Conférence de Sylvain Pellerin
 https://www.academie-agriculture.fr/membres/annuaire/sylvain-pellerin
 <br/>
 <br/>
-** lundi 22 novembre à 18h 
+**Lundi 22 Novembre à 18h:**
 <br/>
 <br/>
 Café allemand  
