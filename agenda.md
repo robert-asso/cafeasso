@@ -217,7 +217,7 @@ Contact: Aurore 06 68 16 29 98
 <br/>
 Soirée Ciné-repas 
 <br/>
-! [51559780227_4fcd00699d_c] (https://live.staticflickr.com/65535/51664474708_0459612469_m.jpg)
+!(https://live.staticflickr.com/65535/51664474708_0459612469_m.jpg)
  <br/>
  <br/>
 ** samedi 27 novembre à 14h  **
