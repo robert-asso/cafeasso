@@ -142,12 +142,7 @@ Conférence de Sylvain Pellerin
 <br/>
  Atténuation du changement climatique: aller vers une agriculture faiblement carbonnée.
  <br/>
-![Capture d’écran 2021-11-10 à 18 48 30](https://user-images.githubusercontent.com/77194514/141166418-21f51e6e-8c88-4dbc-a7d3-c523381c7942.png)
-
-
- 
- 
-Au Programme :
+ Au Programme :
  
  - 14h : Acceuil des participants
  
@@ -157,8 +152,6 @@ Au Programme :
  <br/>
 <br/>
  
-
-
 Sylvain PELLERIN
 est directeur de recherches INRAE à Bordeaux. Il est spécialiste des liens entre l’activité agricole et le changement climatique. Il a coordonné deux études sur l’atténuation des émissions de gaz à effet de serre en agriculture et sur le stockage de carbone dans les sols.
  
