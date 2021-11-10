@@ -156,7 +156,7 @@ Au Programme :
  <br/>
 <br/>
  
- ![6ebec9079acaa161589e0e9bd70972a6b6ea71ea480145eb194122f1f0736cc6 jpg](https://user-images.githubusercontent.com/77194514/141155751-1ccc69af-8c30-4996-a661-b62d5b208518.png)
+
 
 Sylvain PELLERIN
 est directeur de recherches INRAE à Bordeaux. Il est spécialiste des liens entre l’activité agricole et le changement climatique. Il a coordonné deux études sur l’atténuation des émissions de gaz à effet de serre en agriculture et sur le stockage de carbone dans les sols.
