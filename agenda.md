@@ -142,6 +142,7 @@ Conférence de Sylvain Pellerin
 <br/>
  Atténuation du changement climatique: aller vers une agriculture faiblement carbonnée.
  <br/>
+![Capture d’écran 2021-11-10 à 18 48 30](https://user-images.githubusercontent.com/77194514/141166100-9cd7447a-7134-4b92-9642-2709af62e5b4.png)
 
 
  
