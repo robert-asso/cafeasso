@@ -131,53 +131,8 @@ Contact: Toby: 06 04 45 19 39
 <br/>
 <br/>
 ## La prog' au jour le jour
-<br/>     
-<br/>
-** Vendredi 05 Novembre à partir de 19h30: **
-<br/>
-<br/>
-Première scène  ouverte aux musiciens , chanteurs, slameurs et autres poètes...
-Le bar sera ouvert, bien sûr vous pouvez apporter des tartes et des
-gâteaux, sucrés ou salés, qui seront en vente au bar.
- <br/>
- <br/>
-** Samedi 06 novembre à 17h30: **
-<br/>
-<br/>
-Salle des fêtes de Léguillac.
-<br/>
-Conférence de Gabriel Duverneuil "Hisroire de Léguillac des origines à la guerre de 14/18"
-<br/>
-Pass sanitaire 
-<br/>
-<br/>
-A 19h le bar du café sera ouvert pour continuer la soirée.
-<br/>
-<br/>
-** Mardi 09 novembre à 19h00: **
-<br/>
-Café Oc 
-<br/>
-Adiussiatz monde daus ranvers, et d'ailleursss,
 
-Queu dimars lo 9 dau mes mòrt, qui se trouve être ce mardi 9 novembre, 
-Au Café Associatif de Léguillac de Cercle (commune nouvelle de Mareuil la Gourmande),
-farem nòstre cafè òc mesadier (per memòria, segond dimars dau mes) en compania de :
 
-Jean-Michel LAHIEYTE
-pour la sortie de son livre "LES MERLES",
-ouvrage écrit à partir des témoignages qu'il a recueillis sur un épisode de la résistance en Nord Périgord durant l'année 1944 (de veire la presentacion çai-junhada)
-
-Remembrança ciá que (pour rappel) :
-
-Lo cafè òc foncciona partir de las 7 oras de l'enser, soit 19 h dans les anciennes écoles de Léguillac (derrière la mairie annexe)
-chadun e chadunas (donc toutes et tous) pòrtan un quauqua ren per minjar o far partajar ; un comestible par exemple  
-pensar de portar vòstres materiaus de taula / pensez aux couverts
-Lo beure es au comptador, la boisson au comptoir.
-
-Sens ne'n dire mai, à mardi 
-
-Bona dimenjada
 <br/>
 <br/>
 ** Vendredi 19 Novembre de 14h00 à 17h30: **
@@ -187,7 +142,27 @@ Conférence de Sylvain Pellerin
 <br/>
  Atténuation du changement climatique: aller vers une agriculture faiblement carbonnée.
  <br/>
-  Sylvain Pellerin est chercheur à l' INRAE pour Acclimaterra.
+
+
+ 
+ 
+Au Programme :
+ 
+ - 14h : Acceuil des participants
+ 
+- 14h30 : Début de la conférence, intervention du chercheur Sylvain PELLERIN
+ 
+- 16h : Débat avec l'auditoire
+ <br/>
+<br/>
+ 
+ ![6ebec9079acaa161589e0e9bd70972a6b6ea71ea480145eb194122f1f0736cc6 jpg](https://user-images.githubusercontent.com/77194514/141155751-1ccc69af-8c30-4996-a661-b62d5b208518.png)
+
+Sylvain PELLERIN
+est directeur de recherches INRAE à Bordeaux. Il est spécialiste des liens entre l’activité agricole et le changement climatique. Il a coordonné deux études sur l’atténuation des émissions de gaz à effet de serre en agriculture et sur le stockage de carbone dans les sols.
+ 
+
+Evènement ouvert à tous : n'hésitez pas à le diffuser auprès de vos contacts !
   
 https://www.academie-agriculture.fr/membres/annuaire/sylvain-pellerin
 <br/>
