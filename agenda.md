@@ -132,7 +132,8 @@ Contact: Toby: 06 04 45 19 39
 <br/>
 ## LA PROG AU JOUR LE JOUR
 
-## Le Café allemand Prévu le lundi 22 novembre n'aura pas lieu ce jour là, mais plus tard dans l'Année....:**
+## Le Café allemand 
+Prévu le lundi 22 novembre n'aura pas lieu ce jour là, mais vous sera annoncé plus tard ....:
 <br/>
 
 Contact: Aurore 06 68 16 29 98
