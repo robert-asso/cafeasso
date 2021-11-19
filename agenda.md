@@ -46,7 +46,7 @@ Commence le 6 octobre.
 Animé par Isis Eymery : 06 75 60 85 11.    
 <br/>
 <br/>
-** Danse libre **
+## Danse libre 
 <br/>
 2ème samedi de chaque mois de 14h30-16h30  
  <br/> 
@@ -55,7 +55,7 @@ Commence le 9 octobre, tarif en conscience 10-20€ la scéance.
 Animé par Violaine Debien : 06 64 17 06 02  
 <br/>
 <br/>
-** Gym bien-être **
+## Gym bien-être 
 <br/>
 1er et 3ème jeudi de chaque mois, 19h30-20h30
 <br/>  
@@ -65,12 +65,12 @@ Animé par Violaine Debien : 06 64 17 06 02
 <br/>     
 <br/>  
 
-** Scène ouverte **
+## Scène ouverte 
 le 1er vendredi de chaque mois.
 <br/> 
 <br/>
 
-** Réunion Prog' **
+ ## Réunion Prog' 
 
 Tous les 28 du mois à 19h - ouvert à tout.e.s
 <br/>
@@ -87,7 +87,7 @@ https://app.cagette.net/home
 <br/>
   
 
-** Café Oc' **
+## Café Oc' 
 
 2ème mardi de chaque mois de 19h à 22h  
 Repas en auberge espagnole, apportez vos couverts.
@@ -100,14 +100,14 @@ Contact: Luc / 06 26 47 43 94
 <br/>
   
 
-** Café Décroissant **
+## Café Décroissant 
 
 3ème vendredi de chaque mois à 19h30  
 <br/>
 <br/>
 Contact: thdharveng@yahoo.fr
 
-** Café Tricot **
+## Café Tricot 
 
 4ème dimanche de chaque mois à 15h
 <br/>
@@ -121,7 +121,7 @@ https://france3-regions.francetvinfo.fr/nouvelle-aquitaine/dordogne/perigord/leg
 <br/>
   
 
-** Café Philo **
+## Café Philo
 
 4ème dimanche de chaque mois à 16h
 <br/>
@@ -130,16 +130,16 @@ Contact: Toby: 06 04 45 19 39
 <br/>
 <br/>
 <br/>
-## La prog' au jour le jour
+## LA PROG AU JOUR LE JOUR
 
-** Le Café allemand Prévu le lundi 22 novembre n'aura pas lieu ce jour là, mais plus tard dans l'Année....:**
+## Le Café allemand Prévu le lundi 22 novembre n'aura pas lieu ce jour là, mais plus tard dans l'Année....:**
 <br/>
 
 Contact: Aurore 06 68 16 29 98
 <br/>
 <br/>
 <br/>
-**Le vendredi 26 novembre:** 
+## Le vendredi 26 novembre: 
 <br/>
 <br/>
 <br/>
@@ -163,7 +163,7 @@ Soirée à 15€
 
  <br/>
  <br/>
-** samedi 27 novembre à 14h  **
+## samedi 27 novembre à 14h  
 <br/>
 La méthode Feldenkrais, "pour revisiter son shéma corporel"
 <br/>
