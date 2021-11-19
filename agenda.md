@@ -133,51 +133,14 @@ Contact: Toby: 06 04 45 19 39
 ## La prog' au jour le jour
 
 
-<br/>
-<br/>
-** Vendredi 19 Novembre de 14h00 à 17h30: **
-<br/>
-<br/>
-Conférence de Sylvain Pellerin 
-<br/>
- Atténuation du changement climatique: aller vers une agriculture faiblement carbonnée.
- <br/>
- <br/>
- Au Programme :
- 
- - 14h : Acceuil des participants
- 
-- 14h30 : Début de la conférence, intervention du chercheur Sylvain PELLERIN
- 
-- 16h : Débat avec l'auditoire
- <br/>
-Sylvain PELLERIN
-est directeur de recherches INRAE à Bordeaux. Il est spécialiste des liens entre l’activité agricole et le changement climatique. Il a coordonné deux études sur l’atténuation des émissions de gaz à effet de serre en agriculture et sur le stockage de carbone dans les sols.
- 
 
-Evènement ouvert à tous : n'hésitez pas à le diffuser auprès de vos contacts !
-  
-https://www.academie-agriculture.fr/membres/annuaire/sylvain-pellerin
-<br/>
-<br/>
-**Lundi 22 Novembre à 18h:**
-<br/>
-<br/>
-Café allemand  
-<br/>
-Willst du deutsch sprechen? Dann komm!!
-Am 22. November treffen wir uns um 18 Uhr (bis etwa 20:30) im Café associatif de Léguillac de Cercles (ehemalige Schule). 
-Das Programm: es gibt keins.  Komm mit was zum Knabbern, etwas zu erzählen (mit deinem letzten auswendig gelernten Gedicht von Heinrich Heine oder deinem deutschen Lieblingslied… ;–) oder einfach so wie du bist.
+**L'EVENEMENT SUIVANT EST REPORTE A UNE DATE ULTERIEURE:**
 
-Bring deine deutschsprechenden Freunde mit und sag uns Bescheid zu wie vielen ihr ungefähr kommt!
-
-Le café associatif tourne à l’énergie 100% bénévole: jeder spült sein Glas selber :-)  Il faut être adhérent pour pouvoir consommer au bar (adhésion annuelle ou de passage à prendre en arrivant). 
-
-Noch Fragen?
-Dann melde dich bei Aurore (aufor@wanadoo.fr) oder bei Susanne (0618958116)
-
-Bis bald, wir freuen uns!
 <br/>
+<br/>
+Le Café allemand Prévu le lundi 22 novembre n'aura pas lieu ce jour là, mais plus tard dans l'Année....
+<br/>
+
 Contact: Aurore 06 68 16 29 98
 <br/>
 <br/> 
