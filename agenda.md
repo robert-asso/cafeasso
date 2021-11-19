@@ -132,20 +132,14 @@ Contact: Toby: 06 04 45 19 39
 <br/>
 ## La prog' au jour le jour
 
-
-
-**L'EVENEMENT SUIVANT EST REPORTE A UNE DATE ULTERIEURE:**
-
-<br/>
-<br/>
-Le Café allemand Prévu le lundi 22 novembre n'aura pas lieu ce jour là, mais plus tard dans l'Année....
+** Le Café allemand Prévu le lundi 22 novembre n'aura pas lieu ce jour là, mais plus tard dans l'Année....:**
 <br/>
 
 Contact: Aurore 06 68 16 29 98
 <br/>
-<br/> 
-**Le vendredi 26 novembre** 
-
+<br/>
+<br/>
+**Le vendredi 26 novembre:** 
 ![Capture d’écran 2021-11-08 à 15 59 15](https://user-images.githubusercontent.com/77194514/140773162-c409dfe6-26bc-4375-a36f-40a51664ff9c.png)
 <br/>
 Dès 18h30
