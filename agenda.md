@@ -165,9 +165,9 @@ ou via mail : luc.caron0424@orange.fr
 Soirée à 15€ 
 
  <br/>
-## La séance  de découverte de la methode Feldenkrais  
-Prévu le ## samedi 27 novembre n'aura pas lieu ce jour là
-mais vous sera annoncé plus tard, sans doute en janvier ....: 
+## La séance  de découverte de la methode Feldenkrais 
+** Prévue le  samedi 27 novembre n'aura pas lieu ce jour là **
+mais vous sera annoncée plus tard, sans doute en janvier ....: 
 <br/>
 Renseignement et inscription: cybele.calvat@gmail.com
 <br/> 
