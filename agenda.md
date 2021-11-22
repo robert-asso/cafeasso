@@ -15,10 +15,12 @@ fin exemple -->
 
 La programmation est bien sûr perturbée...
 ==
-Visitez régulièrement le site !
+Visitez régulièrement le site ! :
+I/ La prog'permanente
+II/ La prog au jour le jour
 <br/>
 
-## La prog' permanente
+##  I/ La prog' permanente
 
 L'adhésion annuelle à l'association lézidéfuz est de 6€/pers et 12€/famille.
 
@@ -130,7 +132,7 @@ Contact: Toby: 06 04 45 19 39
 <br/>
 <br/>
 <br/>
-## LA PROG AU JOUR LE JOUR
+## II/ LA PROG AU JOUR LE JOUR
 
 ## Le Café allemand 
 Prévu le lundi 22 novembre n'aura pas lieu ce jour là, mais vous sera annoncé plus tard ....:
