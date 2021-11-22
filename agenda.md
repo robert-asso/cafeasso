@@ -16,7 +16,9 @@ fin exemple -->
 La programmation est bien sûr perturbée...
 ==
 Visitez régulièrement le site ! :
+<br/>
 I/ La prog'permanente
+<br/>
 II/ La prog au jour le jour
 <br/>
 
