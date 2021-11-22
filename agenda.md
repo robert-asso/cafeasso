@@ -165,14 +165,9 @@ ou via mail : luc.caron0424@orange.fr
 Soirée à 15€ 
 
  <br/>
- <br/>
-## samedi 27 novembre à 14h  
-<br/>
-La méthode Feldenkrais, "pour revisiter son shéma corporel"
-<br/>
-Séance de découverte animée par Isabelle Lasserre de Bordeaux
-<br/>
-35€ la séance de découverte,  limitée à 6/8 personnes
+## La séance  de découverte de la methode Feldenkrais  
+Prévu le ## samedi 27 novembre n'aura pas lieu ce jour là
+mais vous sera annoncé plus tard, sans doute en janvier ....: 
 <br/>
 Renseignement et inscription: cybele.calvat@gmail.com
 <br/> 
