@@ -69,6 +69,8 @@ Animé par Violaine Debien : 06 64 17 06 02
 
 ## Scène ouverte 
 le 1er vendredi de chaque mois.
+
+Venez participer avec votre instrument , votre voix, votre écoute...
 <br/> 
 <br/>
 
