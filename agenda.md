@@ -80,16 +80,6 @@ Tous les 28 du mois à 19h - ouvert à tout.e.s
 <br/>
 <br/>
 
-** Livraison des paniers de producteurs « Cagettes » **
-
-A partir de novembre ce service est interrompu au café associatif.
-
-Plus d'infos :
-
-https://app.cagette.net/home  
-<br/>
-<br/>
-  
 
 ## Café Oc' 
 
@@ -153,10 +143,12 @@ https://framadate.org/FhHK82hNuSF12zUT
 ## Assemblée générale Lezidefuz
  ** Dimanche 05 décembre à 14h30  **
   <br/>
-  le Café sera ouvert dès 14h.
-  
+le Café sera ouvert dès 14h.
+<br/>
+<br/>
+## Le Dimanche 23 janvier : 
 
-
+le thème du café Philo sera : capitalisme et philosophie
 
 
 
