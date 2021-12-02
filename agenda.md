@@ -135,46 +135,20 @@ Contact: Toby: 06 04 45 19 39
 <br/>
 <br/>
 ## II/ LA PROG AU JOUR LE JOUR
+<br/>
+<br/>
+## Le samedi 11 décembre à 20h30/ Théatre: 
+<br/>
+La Troupe des deux mondes (de Champagnac de Belair) dans:
+"L'OPPOSE DU CONTRAIRE" 
+de Martial Courcier
+<br/>
+Quand un peintre en bâtiment remet en question les théories d'un philosophe...
 
-## Le Café allemand 
-Prévu le lundi 22 novembre n'aura pas lieu ce jour là, mais vous sera annoncé plus tard ....:
+ <br/>Pour bénévoler c'est par ici:
+ 
+https://framadate.org/FhHK82hNuSF12zUT
 <br/>
-
-Contact: Aurore 06 68 16 29 98
-<br/>
-<br/>
-<br/>
-## Le vendredi 26 novembre: 
-<br/>
-<br/>
-<br/>
-
-![Capture d’écran 2021-11-08 à 15 59 15](https://user-images.githubusercontent.com/77194514/140773162-c409dfe6-26bc-4375-a36f-40a51664ff9c.png)
-
-<br/>
-Dès 18h30
-Projection de “Vampires”de Vincent Lannoo et Frédérique Broos (90 min) : 
-vrai/faux documentaire sur une communauté de vampires belges.
-
-Menu saignant :
-Kir et oeufs de lumps sur feuilles d’endives 
-Soupe tomates-vermicelles à l’encre de seiches 
-Tarte aux oignons confits -boudins sur salade trévise 
-Fromage blanc amandes grillées et son coulis de framboises 
-Le tout arrosé d’un verre de vin rouge.
-
-Sur réservation avant le 23 novembre au 06 26 47 43 94
-ou via mail : luc.caron0424@orange.fr
-
-Soirée à 15€ 
-
- <br/>
-## La séance  de découverte de la methode Feldenkrais 
-** Prévue le  samedi 27 novembre n'aura pas lieu ce jour là **
-mais vous sera annoncée plus tard, sans doute en janvier ....: 
-<br/>
-Renseignement et inscription: cybele.calvat@gmail.com
-<br/> 
 <br/>
 ## Assemblée générale Lezidefuz
  ** Dimanche 05 décembre à 14h30  **
