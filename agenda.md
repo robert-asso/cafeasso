@@ -41,12 +41,10 @@ Lors de ces soirées le bar est ouvert.
 chaque mercredi après-midi.  
 <br/> 
 
-* Enfants 15h-16h30
 * Ados 17h-19h
 * Adultes 20h-23h  
 <br/> 
 
-Commence le 6 octobre.
 Animé par Isis Eymery : 06 75 60 85 11.    
 <br/>
 <br/>
