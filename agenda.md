@@ -127,19 +127,16 @@ Contact: Toby: 06 04 45 19 39
 ## II/ LA PROG AU JOUR LE JOUR
 <br/>
 <br/>
-## Le samedi 11 décembre à 20h30/ Théatre: 
+## ANNULATION DU THEATRE DU samedi 11 décembre : 
+Mais ce n'est que partie remise
 <br/>
-La Troupe des deux mondes (de Champagnac de Belair) dans:
+La Troupe des deux mondes (de Champagnac de Belair)viendra à une date ultérieure nous presenter :
 "L'OPPOSE DU CONTRAIRE" 
 de Martial Courcier
 <br/>
-Quand un peintre en bâtiment remet en question les théories d'un philosophe...
 
- <br/>Pour bénévoler c'est par ici:
- 
-https://framadate.org/FhHK82hNuSF12zUT
-<br/>
-<br/>
+
+
 
 ## Le Dimanche 23 janvier : 
 
