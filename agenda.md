@@ -128,9 +128,11 @@ Contact: Toby: 06 04 45 19 39
 <br/>
 <br/>
 ## ANNULATION DU THEATRE DU samedi 11 décembre : 
+<br/>
 Mais ce n'est que partie remise
 <br/>
-La Troupe des deux mondes (de Champagnac de Belair)viendra à une date ultérieure nous presenter :
+La Troupe des deux mondes (de Champagnac de Belair)
+viendra à une date ultérieure nous presenter :
 "L'OPPOSE DU CONTRAIRE" 
 de Martial Courcier
 <br/>
