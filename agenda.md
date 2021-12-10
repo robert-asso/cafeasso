@@ -81,7 +81,7 @@ Tous les 28 du mois à 19h - ouvert à tout.e.s
 <br/>
 
 
-## Café Oc' 
+## Café Oc' annulé le mardi 14 décembre
 
 2ème mardi de chaque mois de 19h à 22h  
 Repas en auberge espagnole, apportez vos couverts.
@@ -140,12 +140,7 @@ Quand un peintre en bâtiment remet en question les théories d'un philosophe...
 https://framadate.org/FhHK82hNuSF12zUT
 <br/>
 <br/>
-## Assemblée générale Lezidefuz
- ** Dimanche 05 décembre à 14h30  **
-  <br/>
-le Café sera ouvert dès 14h.
-<br/>
-<br/>
+
 ## Le Dimanche 23 janvier : 
 
 le thème du café Philo sera : capitalisme et philosophie
