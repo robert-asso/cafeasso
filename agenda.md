@@ -96,9 +96,8 @@ Contact: Luc / 06 26 47 43 94
   
 
 ## Café Décroissant 
-**LE CAFÉ DU VENDREDI 17 DÉCEMBRE EST ANNULÉ!**
+**LE CAFÉ DU VENDREDI 17 DÉCEMBRE EST ANNULÉ!**<br/>
 3ème vendredi de chaque mois à 19h30  
-<br/>
 <br/>
 Contact: thdharveng@yahoo.fr
 
