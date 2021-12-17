@@ -127,18 +127,17 @@ Contact: Toby: 06 04 45 19 39
 ## II/ LA PROG AU JOUR LE JOUR
 <br/>
 <br/>
-## ANNULATION DU THEATRE 
-## CE SAMEDI 11 DECEMBRE: 
-<br/>
-Mais ce n'est que partie remise
-<br/>
-La Troupe des deux mondes (de Champagnac de Belair)
-viendra à une date ultérieure nous presenter :
-"L'OPPOSE DU CONTRAIRE" 
-de Martial Courcier
+## ANNULATION de la soirée collapso/ café décroisant
+En contre-partie, nous vous proposons d'aller
+dès 14h30  à la Ferme Bio de François Soulard à Monsec , une rencontre sur le thème du "Bien-être animal " ouvert à tou(te)s,
+
+Réservez votre vendredi soir (19H30) du 21 janvier 2022 pour une réunion de rentrée de la prochaine année.
+
 <br/>
 
-
+## le 28 décembre
+«  Afin de terminer l’année en beauté, nous vous proposons, , la réunion de programmation habituelle, mais avancée à 18h, et à partir de 19h30, un repas, bon et sympa. Apéro, bonne bouffe, musique si vous avez des instruments, j’en passe et des meilleurs. Afin de préparer au mieux cette soirée, nous vous demandons de bien vouloir vous inscrire auprès de luc au 06.26.47.43.94 ou luc.caron0424range.fr. dernier délai de réservation, le 24 décembre. Repas au chapeau »
+ 
 
 
 ## Le Dimanche 23 janvier : 
