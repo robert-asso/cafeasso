@@ -1,5 +1,6 @@
 
 
+
 <!-- Exemple:
 
 #### mardi 10 mars
@@ -127,7 +128,8 @@ Contact: Toby: 06 04 45 19 39
 ## II/ LA PROG AU JOUR LE JOUR
 <br/>
 <br/>
-## ANNULATION de la soirée collapso/ café décroisant du vendredi 17 décembre
+## ANNULATION 
+de la soirée collapso/ café décroisant du vendredi 17 décembre
 <br/>
 En contre-partie, nous vous proposons d'aller
 dès 14h30  à la Ferme Bio de François Soulard à Monsec , une rencontre sur le thème du "Bien-être animal " ouvert à tou(te)s,
