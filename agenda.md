@@ -128,7 +128,7 @@ Contact: Toby: 06 04 45 19 39
 ## II/ LA PROG AU JOUR LE JOUR
 <br/>
 <br/>
-## ANNULATION 
+## Annulation
 de la soirée collapso/ café décroisant du vendredi 17 décembre
 <br/>
 En contre-partie, nous vous proposons d'aller
