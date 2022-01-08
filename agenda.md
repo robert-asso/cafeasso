@@ -82,7 +82,7 @@ Tous les 28 du mois à 19h - ouvert à tout.e.s
 <br/>
 
 
-## Café Oc' annulé le mardi 14 décembre
+## Café Oc'
 
 2ème mardi de chaque mois de 19h à 22h  
 Repas en auberge espagnole, apportez vos couverts.
@@ -96,7 +96,7 @@ Contact: Luc / 06 26 47 43 94
   
 
 ## Café Décroissant 
-**LE CAFÉ DU VENDREDI 17 DÉCEMBRE EST ANNULÉ!**<br/>
+<br/>
 3ème vendredi de chaque mois à 19h30  
 <br/>
 Contact: thdharveng@yahoo.fr
@@ -127,20 +127,6 @@ Contact: Toby: 06 04 45 19 39
 ## II/ LA PROG AU JOUR LE JOUR
 <br/>
 <br/>
-## Annulation
-de la soirée collapso/ café décroisant du vendredi 17 décembre
-<br/>
-En contre-partie, nous vous proposons d'aller
-dès 14h30  à la Ferme Bio de François Soulard à Monsec , une rencontre sur le thème du "Bien-être animal " ouvert à tou(te)s,
-
-Réservez votre vendredi soir (19H30) du 21 janvier 2022 pour une réunion de rentrée de la prochaine année.
-
-
-
-
- 
-
-
 ## Le Dimanche 23 janvier : 
 
 le thème du café Philo sera : capitalisme et philosophie
