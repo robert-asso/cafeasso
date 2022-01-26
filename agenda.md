@@ -127,9 +127,27 @@ Contact: Toby: 06 04 45 19 39
 ## II/ LA PROG AU JOUR LE JOUR
 <br/>
 <br/>
-## Le Dimanche 23 janvier : 
+## WE du 12/13 Février : 
 
-le thème du café Philo sera : capitalisme et philosophie
+Samedi: 14h-16h "Vibre en corps" avec Violaine Debien, accompagnée par Ako en musique live.
+Séance de Danse Libre permettant de libérer le mouvement et faire émerger l'essentiel au son des handpans, tablas...
+Laisser nos perceptions nous mouvoir, nous émouvoir, nous révéler. 
+
+Puis 3 représentations du concert chorégraphique
+Samedi 12 février 17h30 et 20h30 
+Dimanche 13 février 15h
+
+"Concert Chorégraphique"
+
+Dans ce duo musique et mouvement, nous vous proposons un voyage à travers plusieurs pièces courtes qui abordent chacune une thématique particulière. 
+Au fur et à mesure que le spectacle se déroule, nous vous invitons toujours plus loin dans notre univers, afin de vous permettre d'entrer en résonnance avec les sujets, les symboles, et les histoires racontées.
+
+Pour découvrir l'univers musical : ako-musique.com
+
+Tout public
+Durée 1h
+Participation libre
+
 
 
 
