@@ -127,7 +127,7 @@ Contact: Toby: 06 04 45 19 39
 ## II/ LA PROG AU JOUR LE JOUR
 <br/>
 <br/>
-## WE du 12/13 Février : 
+## WE du 12/13 Février  
 
 Samedi: 14h-16h "Vibre en corps" avec Violaine Debien, accompagnée par Ako en musique live.
 Séance de Danse Libre permettant de libérer le mouvement et faire émerger l'essentiel au son des handpans, tablas...
