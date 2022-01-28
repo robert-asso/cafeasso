@@ -127,6 +127,36 @@ Contact: Toby: 06 04 45 19 39
 ## II/ LA PROG AU JOUR LE JOUR
 <br/>
 <br/>
+## Samedi 22 janvier 2022
+14h30 à 17h30
+<br/>
+RENCONTRE avec la méthode FELDENKRAIS
+ 
+Avec Isabelle LASSERRE,
+Praticienne certifiée de la méthode Feldenkrais™
+et fondatrice de la compagnie Atelier La Renverse.
+<br/> 
+De petits mouvements en grands changements
+Pour un mieux-être et de la détente au quotidien
+Sentir ses appuis au sol : debout, couché, assis
+Expérimenter le développement d’un mouvement sensible et humain
+Apprécier la présence de son corps dans l’espace avec et parmi les autres
+Sentir la confiance s’épanouir
+Prendre soin de soi dans la lenteur et la douceur
+Plus de variations, plus de nuances pour plus de fluidité et de dynamique
+Renforcer et/ou cultiver sa mobilité fine dans une forme de méditation en mouvement
+Un dos soulagé, les pieds fermes sur terre, la tête dans le ciel !
+<br/> 
+Tarif séance découverte : 35€
++ Adhésion “de passage” au Café : 1€
+Venir avec une tenue confortable et chaude, votre tapis et une couverture
+Thé offert en fin de séance pour échanges et saveurs …
+Accessible à tou.te.s, passionné.e.s de mouvement, bienvenue !
+<br/> 
+Renseignements et inscriptions :
+CONTACT : 06 64 66 92 90 Cybèle / 06 68 32 21 22 Isabelle atelierlarenverse@orange.fr
+www.atelier-la-renverse.com / Lien : www.feldenkrais-france.org
+
 ## WE du 12/13 Février  
 
 Samedi: 14h-16h "Vibre en corps" avec Violaine Debien, accompagnée par Ako en musique live.
