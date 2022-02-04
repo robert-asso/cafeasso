@@ -151,9 +151,12 @@ Pour découvrir l'univers musical : ako-musique.com
 Tout public
 Durée 1h
 Participation libre
+<br/>
+<br/>
+Pour bénévoler c'est ici:
+<br/>
 
-
-
+https://framadate.org/1nZntVMt5PyXMfnE
 
 
 
