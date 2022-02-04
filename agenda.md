@@ -160,7 +160,23 @@ https://framadate.org/1nZntVMt5PyXMfnE
 <br/>
 <br/>
 ![Affiche 'Concert Chorégraphique' 1 - Café asso Leguillac HQ](https://user-images.githubusercontent.com/77194514/152568088-5cf81a24-9577-44ad-b972-95e95b923062.jpg)
-
-
-
-
+<br/>
+<br/>
+## Le jeudi 10 février de 10h à 17h 
+<br/>
+Journée de préparation et debut de chantier embellissement du café.
+Auberge espagnole. Apportez le materiel qui vous semble utile. Vous êtes tous et toutes bienvennu(e)s.
+<br/>
+<br/>
+## Dimanche 20 février 17h :
+<br/>
+Eve Nuzzo et Hérvé Mignon
+<br/>
+<br/>
+LECTURE VOIX-BASSE
+Eve choisit de lire au gré du moment quelques unes de ses écrivures -courts textes d’autofiction fantasques, parodiques ou poétiques- écrites depuis un an (les plus récentes sont lisibles là :  https://short-edition.com/fr/auteur/eve-nuzzo).
+Hervé l’accompagne, s’immisce dans les interstices, nappe d’une ambiance sonore piochée dans l'infini des sons de sa basse électrique passés au travers d'effets électroniques.
+<br/>
+Moment ouvert à tous
+Entrée au chapeau.	
+Contact: Jean-Luc 06 80 28 00 57, 
