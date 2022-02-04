@@ -169,7 +169,8 @@ Journée de préparation et debut de chantier embellissement du café.
 Auberge espagnole. Apportez le materiel qui vous semble utile. Vous êtes tous et toutes bienvennu(e)s.
 <br/>
 <br/>
-## Dimanche 20 février 17h :
+## Dimanche 20 février 17h 
+<br/>
 <br/>
 Eve Nuzzo et Hérvé Mignon
 <br/>
