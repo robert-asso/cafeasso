@@ -198,6 +198,8 @@ Un deuxième album est en cours de production, mais rien n’empêche de vous le
 Des chansons aux reliefs variés: montagnes escarpées ou plateaux rassurants, paysages lunaires ou solaires, émotions des profondeurs ou légers vertiges, c'est un voyage garanti en terre poétique.
 Arthur est bien impatient de vous rencontrer !
 <br/>
+Entrée au chapeau . Contact Luc: 06 26 47 43 94
+<br/>
 <br/>
 ![ArthurDLT-photo1](https://user-images.githubusercontent.com/77194514/152571762-be2608da-0a96-4aa2-a8ac-a4e023c1f3d2.jpeg)
 
