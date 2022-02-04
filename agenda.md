@@ -184,4 +184,22 @@ Entrée au chapeau.
 Contact: Jean-Luc 06 80 28 00 57, 
 
 ![hervéeteve](https://user-images.githubusercontent.com/77194514/152570809-215f6a8e-6cd8-4765-9d4d-be6d923bd2e5.jpg)
+<br/>
+<br/>
+<br/>
+## Samedi 26 février à 21h
+<br/>
+<br/>
+**Concert solo Arthur de La Taille**
+<br/>
+<br/>
+Depuis la route ouverte avec son premier album « Ministère des ondes » qui lui avait valu un Coup de Coeur Charles Cros, de nouvelles chansons ont vu le jour. 
+Un deuxième album est en cours de production, mais rien n’empêche de vous les présenter au format « troubadour » (solo guitare chant) afin d’en découvrir l’essence originelle !
+Des chansons aux reliefs variés: montagnes escarpées ou plateaux rassurants, paysages lunaires ou solaires, émotions des profondeurs ou légers vertiges, c'est un voyage garanti en terre poétique.
+Arthur est bien impatient de vous rencontrer !
+<br/>
+<br/>
+![ArthurDLT-photo1](https://user-images.githubusercontent.com/77194514/152571762-be2608da-0a96-4aa2-a8ac-a4e023c1f3d2.jpeg)
+
+
 
