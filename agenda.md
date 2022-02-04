@@ -157,7 +157,9 @@ Pour bénévoler c'est ici:
 <br/>
 
 https://framadate.org/1nZntVMt5PyXMfnE
-
+<br/>
+<br/>
+![Affiche 'Concert Chorégraphique' 1 - Café asso Leguillac HQ](https://user-images.githubusercontent.com/77194514/152568088-5cf81a24-9577-44ad-b972-95e95b923062.jpg)
 
 
 
