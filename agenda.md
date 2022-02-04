@@ -24,7 +24,8 @@ II/ La prog au jour le jour
 <br/>
 
 ##  I/ La prog' permanente
-
+<br/> 
+**S'il n'y a pas d'annonce d'annulation ces ateliers et soirées ont bien lieu
 L'adhésion annuelle à l'association lézidéfuz est de 6€/pers et 12€/famille.
 
 En accès libre pour les adhérents.
