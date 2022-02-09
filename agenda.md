@@ -134,7 +134,7 @@ Contact: Toby: 06 04 45 19 39
 ## Le jeudi 10 février de 10h à 17h 
 <br/>
 Journée de préparation et debut de chantier embellissement du café.
-Auberge espagnole. Apportez le materiel qui vous semble utile. Vous êtes tous et toutes bienvennu(e)s.
+Auberge espagnole. Apportez le materiel qui vous semble utile. Vous êtes tous et toutes bienvenu(e)s.
 <br/>
 <br/>
 ## WE du 12/13 Février  
