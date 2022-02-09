@@ -131,7 +131,12 @@ Contact: Toby: 06 04 45 19 39
 ## II/ LA PROG AU JOUR LE JOUR
 <br/>
 <br/>
-
+## Le jeudi 10 février de 10h à 17h 
+<br/>
+Journée de préparation et debut de chantier embellissement du café.
+Auberge espagnole. Apportez le materiel qui vous semble utile. Vous êtes tous et toutes bienvennu(e)s.
+<br/>
+<br/>
 ## WE du 12/13 Février  
 
 Samedi: 14h-16h "Vibre en corps" avec Violaine Debien, accompagnée par Ako en musique live.
@@ -163,12 +168,7 @@ https://framadate.org/1nZntVMt5PyXMfnE
 ![Affiche 'Concert Chorégraphique' 1 - Café asso Leguillac HQ](https://user-images.githubusercontent.com/77194514/152568088-5cf81a24-9577-44ad-b972-95e95b923062.jpg)
 <br/>
 <br/>
-## Le jeudi 10 février de 10h à 17h 
-<br/>
-Journée de préparation et debut de chantier embellissement du café.
-Auberge espagnole. Apportez le materiel qui vous semble utile. Vous êtes tous et toutes bienvennu(e)s.
-<br/>
-<br/>
+
 ## Dimanche 20 février 17h 
 <br/>
 <br/>
