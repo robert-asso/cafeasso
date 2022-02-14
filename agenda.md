@@ -184,10 +184,12 @@ Entrée au chapeau.
 Contact: Jean-Luc 06 80 28 00 57,
 <br/>
 <br/>
-Pour bénévoler c'est par là: https://framadate.org/4YXvr8T7ugF8xAcQ
+Pour bénévoler c'est par là: 
+<br/>
+https://framadate.org/4YXvr8T7ugF8xAcQ
 
 ![hervéeteve](https://user-images.githubusercontent.com/77194514/152570809-215f6a8e-6cd8-4765-9d4d-be6d923bd2e5.jpg)
-<br/>
+
 <br/>
 <br/>
 ## Samedi 26 février à 21h
