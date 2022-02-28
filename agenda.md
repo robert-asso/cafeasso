@@ -88,12 +88,13 @@ Tous les 28 du mois à 19h - ouvert à tout.e.s
 
 ## Café Oc'
 <br/>
-<br/>
+
 ## ATTENTION CHANGEMENT DE DATE EXEPTIONEL
 <br/>
 <br/>
-## Ce mois-çi, pour cause de carnaval, le café Oc a lieu le mardi 29 Février
-
+## CE MOIS-CI, POUR CAUSE DE CARNAVAL, LE CAFE OC A LIEU LE MARDI 29 FEVRIER
+<br/>
+<br/>
 2ème mardi de chaque mois de 19h à 22h  
 Repas en auberge espagnole, apportez vos couverts.
 <br/>
