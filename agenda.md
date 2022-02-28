@@ -82,11 +82,15 @@ Venez participer avec votre instrument , votre voix, votre écoute...
  ## Réunion Prog' 
 
 Tous les 28 du mois à 19h - ouvert à tout.e.s
-<br/>
-<br/>
 
+<br/>
+<br/>
 
 ## Café Oc'
+<br/>
+<br/>
+## ATTENTION CHANGEMENT DE DATE EXEPTIONEL
+## Ce mois-çi, pour cause de carnaval, le café Oc a lieu le mardi 29 Février
 
 2ème mardi de chaque mois de 19h à 22h  
 Repas en auberge espagnole, apportez vos couverts.
