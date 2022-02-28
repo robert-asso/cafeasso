@@ -91,7 +91,6 @@ Tous les 28 du mois à 19h - ouvert à tout.e.s
 
 ## ATTENTION CHANGEMENT DE DATE EXEPTIONEL
 <br/>
-<br/>
 ## CE MOIS-CI, POUR CAUSE DE CARNAVAL, LE CAFE OC A LIEU LE MARDI 29 FEVRIER
 <br/>
 <br/>
