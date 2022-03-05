@@ -354,15 +354,16 @@ Catarina e Alan Donheton
 ************
  
  
-#### Notez-le dès maintenant dans vos agendas...
+## NOTEZ LE DES MAINTENANT...
  <br/>
  <br/>
  
 ## LE PETIT TOIT D'ÉTOILES
- 
+ <br/>
+ <br/>
 aura lieu cette année!!
  
-le samedi 17 et dimanche 18 septembre
+## les samedi 17 et dimanche 18 septembre
  
 ********
  
