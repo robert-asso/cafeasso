@@ -191,7 +191,7 @@ Contact: Isis 06.75.60.85.11
 <br/>
 <br/>
 <br/>
-## Le 21 mars à 18h
+## LUNDI 21 MARS A 18H
 <br/>
 <br/>
 CAFE ALLEMAND
@@ -211,47 +211,40 @@ Bis bald, wir freuen uns!
 <br/>
 <br/>
 <br/>
-Jeudi 24 mars
-à 19h
+## JEUDI 24 MARS A 19H
+<br/>
 Café paysan
- 
- 
-En ces temps perturbés : où va l’agriculture ?
+ <br/>
+ En ces temps perturbés : où va l’agriculture ?
 Soirée débat autour du livre »Reprendre la terre aux machines »
 en présence d’un des auteurs .
 renseignements: Jean-Luc 06 80 28 00 57
- 
-*********
- 
- 
-Vendredi 25 mars
-à 20h30
+ *********
+ <br/>
+ <br/>
+## VENDREDI 25 MARS A 20H30
+ <br/>
 soirée ciné
- 
+  <br/>
 "Josep"
  
  
 Février 1939. Submergé par le flot de Républicains fuyant la dictature franquiste, le gouvernement français les parque dans des camps. Deux hommes séparés par les barbelés vont se lier d’amitié. L’un est gendarme, l’autre est dessinateur. De Barcelone à New York, l'histoire vraie de Josep Bartolí, combattant antifranquiste et artiste d'exception.
+ <br/> 
+ 
+ Participation... au chapeau
+ ***********
  
  
- 
- 
-Participation... au chapeau
- 
- 
- 
-***********
- 
- 
-Samedi 26 mars
- 
+## SAMEDI 26 MARS DE 14H30 A 17H30
+ <br/> 
 de 14h30 à 17h30
- 
+  <br/>
  
 « Un samedi de Pleine Légèreté »
-
+ <br/>
 RENCONTRE AVEC LA MÉTHODE FELDENKRAIS
- 
+  <br/>
 avec Isabelle Lasserre praticienne certifiée de la méthode Feldenkrais™
 Fondatrice de la compagnie Atelier La Renverse, elle intervient auprès de nombreux publics depuis la Petite Enfance jusqu’à nos ainé.e.s en perte d’autonomie dans la joie et la créativité d’être vivant !
  
@@ -277,34 +270,32 @@ Accessible à tou.te.s, passionné.e.s de mouvement, bienvenue !
 Renseignements et inscriptions :
 Contact : 06 64 66 92 90 Cybèle / 06 68 32 21 22 Isabelle atelierlarenverse@orange.fr
 www.atelier-la-renverse.com / Lien : www.feldenkrais-france.org
+  <br/>
+ ************
+  <br/>
+  <br/>
+## MARDI 27 MARS A 18H30
+
+réunion d'information sur La possible création d’un Groupement Forestier Citoyen (GFC)
  
- 
- 
-************
- 
- 
-Mardi 27 mars
-18h30
-réunion d'information
- 
-La création d’un Groupement Forestier Citoyen (GFC)
- 
-est un moyen d’action rapide et efficace pour lutter contre la multiplication des coupes rases en Périgord vert et la perte de biodiversité engendrée.
+Le GFC est un moyen d’action rapide et efficace pour lutter contre la multiplication des coupes rases en Périgord vert et la perte de biodiversité engendrée.
 Acquérir collectivement des parcelles de forêts, afin de les protéger et de les gérer durablement est une solution forte fasse aux enjeux environnementaux actuels.
 Emanuel Repérant, gérant du GFC Lu Picatau, sera présent pour nous aider à faire naître notre propre GFC et ainsi contribuer à la préservation de notre patrimoine naturel. 
  
 renseignements: Margaux Bordes 07 81 64 34 97
  
+ ***********
+  <br/>
+  <br/>
  
-***********
+## Et pour début avril, trois dates à retenir
+  <br/>
+  <br/>
  
  
-Et pour début avril, trois dates à retenir
- 
- 
- 
-Samedi 2 avril
-20h30
+## SAMEDI 02 AVRIL 20H30
+ <br/>
+ <br/>
  
 LA TROUPE DES DEUX MONDES
 de Champagnac de Belair jouera au Café
@@ -317,24 +308,24 @@ remet en questions les théories d'un philosophe...
  
 tarif libre (au chapeau).......................................Réservation: 06 84 19 06 17
  
+ ***********
  
-***********
  
+## DIMANCHE 03 AVRIL 8H30
+ <br/>
+ <br/>
  
-Dimanche 3 avril
-8h30
- 
-rando "petit patrimoine"
+Rando "petit patrimoine"
  organisée par l'Amicale Laïque de Léguillac
 et le club Histoire et Patrimoine de la Tour Blanche.
  
 renseignements: Philippe Brousse 06 84 19 06 17
  
+ **********
+  <br/>
+  <br/>
  
-**********
- 
- 
-mardi 12 avril
+## MARDI 12 AVRIL
 Café Oc
  
 Venetz lo dimars 12 d'abriu a 7 oras aprep miegjorn per veire lo filme « De gòrja a aurelha”
@@ -357,9 +348,9 @@ Catarina e Alan Donheton
 ************
  
  
-Notez-le dès maintenant dans vos agendas...
+#### Notez-le dès maintenant dans vos agendas...
  
-"LE PETIT TOIT D'ÉTOILES"
+## LE PETIT TOIT D'ÉTOILES
  
 aura lieu cette année!!
  
