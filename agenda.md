@@ -135,7 +135,7 @@ Contact: Toby: 06 04 45 19 39
  
 ## SAMEDI 12 MARS, 10h à 18h30
  
-Journée bien-être
+JOURNEE BIEN ÊTRE
  
  
 Rdv 10h thé-café-petits gâteaux
@@ -164,7 +164,7 @@ https://violainedebien.cabanova.com
  
 ## DIMANCHE 13 MARS, 10h à 17h
  
-STAGE Improvisation
+STAGE IMPROVISATION
  
  
 Ouvert aux adultes et adolescents à partir de 15 ans.
@@ -213,7 +213,7 @@ Bis bald, wir freuen uns!
 <br/>
 ## JEUDI 24 MARS A 19H
 <br/>
-Café paysan
+CAFE PAYSAN
  <br/>
  En ces temps perturbés : où va l’agriculture ?
 Soirée débat autour du livre »Reprendre la terre aux machines »
@@ -228,7 +228,7 @@ renseignements: Jean-Luc 06 80 28 00 57
  <br/>
 ## VENDREDI 25 MARS A 20H30
  <br/>
-soirée ciné
+SOIREE CINEMA
   <br/>
 "Josep"
  
@@ -244,10 +244,8 @@ Février 1939. Submergé par le flot de Républicains fuyant la dictature franqu
  
 ## SAMEDI 26 MARS DE 14H30 A 17H30
  <br/> 
-de 14h30 à 17h30
-  <br/>
- 
-« Un samedi de Pleine Légèreté »
+ <br/>
+ « Un samedi de Pleine Légèreté »
  <br/>
 RENCONTRE AVEC LA MÉTHODE FELDENKRAIS
   <br/>
@@ -282,7 +280,7 @@ www.atelier-la-renverse.com / Lien : www.feldenkrais-france.org
   <br/>
 ## MARDI 27 MARS A 18H30
 
-réunion d'information sur La possible création d’un Groupement Forestier Citoyen (GFC)
+Réunion d'information et de reflexion sur la création d’un Groupement Forestier Citoyen (GFC)
  
 Le GFC est un moyen d’action rapide et efficace pour lutter contre la multiplication des coupes rases en Périgord vert et la perte de biodiversité engendrée.
 Acquérir collectivement des parcelles de forêts, afin de les protéger et de les gérer durablement est une solution forte fasse aux enjeux environnementaux actuels.
