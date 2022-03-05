@@ -222,7 +222,6 @@ renseignements: Jean-Luc 06 80 28 00 57
 
 ![Reprendre_la_terre_aux_machines](https://user-images.githubusercontent.com/77194514/156891418-7334d4ef-5aee-4b8a-b434-62bcdd37aa25.jpg)
 
-
  *********
  <br/>
  <br/>
@@ -244,7 +243,6 @@ Février 1939. Submergé par le flot de Républicains fuyant la dictature franqu
  
 ## SAMEDI 26 MARS DE 14H30 A 17H30
  <br/> 
- <br/>
  « Un samedi de Pleine Légèreté »
  <br/>
 RENCONTRE AVEC LA MÉTHODE FELDENKRAIS
@@ -279,9 +277,9 @@ www.atelier-la-renverse.com / Lien : www.feldenkrais-france.org
   <br/>
   <br/>
 ## MARDI 27 MARS A 18H30
-
+ <br/>
 Réunion d'information et de reflexion sur la création d’un Groupement Forestier Citoyen (GFC)
- 
+ <br/>
 Le GFC est un moyen d’action rapide et efficace pour lutter contre la multiplication des coupes rases en Périgord vert et la perte de biodiversité engendrée.
 Acquérir collectivement des parcelles de forêts, afin de les protéger et de les gérer durablement est une solution forte fasse aux enjeux environnementaux actuels.
 Emanuel Repérant, gérant du GFC Lu Picatau, sera présent pour nous aider à faire naître notre propre GFC et ainsi contribuer à la préservation de notre patrimoine naturel. 
@@ -297,12 +295,8 @@ renseignements: Margaux Bordes 07 81 64 34 97
 ## Et pour début avril, trois dates à retenir
   <br/>
   <br/>
- 
- 
-## SAMEDI 02 AVRIL 20H30
+ ## SAMEDI 02 AVRIL 20H30
  <br/>
- <br/>
- 
 LA TROUPE DES DEUX MONDES
 de Champagnac de Belair jouera au Café
  
@@ -318,11 +312,9 @@ tarif libre (au chapeau).......................................Réservation: 06 
  
  
 ## DIMANCHE 03 AVRIL 8H30
- <br/>
- <br/>
- 
+<br/>
 Rando "petit patrimoine"
- organisée par l'Amicale Laïque de Léguillac
+organisée par l'Amicale Laïque de Léguillac
 et le club Histoire et Patrimoine de la Tour Blanche.
  
 renseignements: Philippe Brousse 06 84 19 06 17
@@ -332,6 +324,7 @@ renseignements: Philippe Brousse 06 84 19 06 17
   <br/>
  
 ## MARDI 12 AVRIL
+<br/>
 Café Oc
  
 Venetz lo dimars 12 d'abriu a 7 oras aprep miegjorn per veire lo filme « De gòrja a aurelha”
@@ -360,9 +353,8 @@ Catarina e Alan Donheton
  
 ## LE PETIT TOIT D'ÉTOILES
  <br/>
+## aura lieu cette année
  <br/>
-aura lieu cette année!!
- 
 ## les samedi 17 et dimanche 18 septembre
  
 ********
