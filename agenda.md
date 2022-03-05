@@ -195,6 +195,7 @@ Contact: Isis 06.75.60.85.11
 <br/>
 <br/>
 CAFE ALLEMAND
+<br/>
 Willst du deutsch sprechen? Dann komm!!
  Am 21. März treffen wir uns um 18 Uhr im Café associatif de Léguillac de Cercles* (ehemalige Schule). 
 
