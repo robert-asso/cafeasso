@@ -188,5 +188,185 @@ Auberge espagnole le midi,
 A partir de 8 personnes et jusqu'à 15.
  
 Contact: Isis 06.75.60.85.11
+<br/>
+<br/>
+<br/>
+## Le 21 mars à 18h
+<br/>
+<br/>
+CAFE ALLEMAND
+Willst du deutsch sprechen? Dann komm!!
+ Am 21. März treffen wir uns um 18 Uhr im Café associatif de Léguillac de Cercles* (ehemalige Schule). 
+
+Das Programm? Es gibt keins. Bring deine deutschsprechenden Freunde mit und lasst uns einfach zusammen ein Gläschen auf den Frühling trinken! Gerne kannst du auch etwas zum Knabbern mitbringen.
+
+
+Noch Fragen? 
+Dann melde dich bei Aurore (aufor@wanadoo.fr) oder bei Susanne (06-18-95-81-16)
+
+Bis bald, wir freuen uns!
+
+
+*Le café associatif tourne à l’énergie 100% bénévole (= jeder spült sein Glas selber :-)  Il faut être adhérent pour pouvoir consommer au bar : adhésion annuelle (6 €) ou de passage (1 €) à prendre en arrivant. 
+<br/>
+<br/>
+<br/>
+Jeudi 24 mars
+à 19h
+Café paysan
+ 
+ 
+En ces temps perturbés : où va l’agriculture ?
+Soirée débat autour du livre »Reprendre la terre aux machines »
+en présence d’un des auteurs .
+renseignements: Jean-Luc 06 80 28 00 57
+ 
+*********
+ 
+ 
+Vendredi 25 mars
+à 20h30
+soirée ciné
+ 
+"Josep"
+ 
+ 
+Février 1939. Submergé par le flot de Républicains fuyant la dictature franquiste, le gouvernement français les parque dans des camps. Deux hommes séparés par les barbelés vont se lier d’amitié. L’un est gendarme, l’autre est dessinateur. De Barcelone à New York, l'histoire vraie de Josep Bartolí, combattant antifranquiste et artiste d'exception.
+ 
+ 
+ 
+ 
+Participation... au chapeau
+ 
+ 
+ 
+***********
+ 
+ 
+Samedi 26 mars
+ 
+de 14h30 à 17h30
+ 
+ 
+« Un samedi de Pleine Légèreté »
+
+RENCONTRE AVEC LA MÉTHODE FELDENKRAIS
+ 
+avec Isabelle Lasserre praticienne certifiée de la méthode Feldenkrais™
+Fondatrice de la compagnie Atelier La Renverse, elle intervient auprès de nombreux publics depuis la Petite Enfance jusqu’à nos ainé.e.s en perte d’autonomie dans la joie et la créativité d’être vivant !
+ 
+De petits mouvements en grands changements
+Pour un mieux-être et de la détente au quotidien
+Sentir la présence de son corps dans l’espace et la confiance s’épanouir
+Prendre soin de soi dans la lenteur et la douceur
+Apprendre à bouger avec plus de variations et de nuances
+Découvrir plus de fluidité et de dynamique
+Renforcer et/ou cultiver sa mobilité fine
+Un dos soulagé, les pieds fermes sur terre, la tête dans le ciel…
+
+ 
+Tarif séance découverte : 35€
++ Adhésion “de passage” au Café : 1€ ou adhésion simple : 6 €
+
+ 
+Venir avec une tenue confortable et chaude, votre tapis et une couverture
+Thé offert en fin de séance pour échanges et saveurs …
+Accessible à tou.te.s, passionné.e.s de mouvement, bienvenue !
+
+ 
+Renseignements et inscriptions :
+Contact : 06 64 66 92 90 Cybèle / 06 68 32 21 22 Isabelle atelierlarenverse@orange.fr
+www.atelier-la-renverse.com / Lien : www.feldenkrais-france.org
+ 
+ 
+ 
+************
+ 
+ 
+Mardi 27 mars
+18h30
+réunion d'information
+ 
+La création d’un Groupement Forestier Citoyen (GFC)
+ 
+est un moyen d’action rapide et efficace pour lutter contre la multiplication des coupes rases en Périgord vert et la perte de biodiversité engendrée.
+Acquérir collectivement des parcelles de forêts, afin de les protéger et de les gérer durablement est une solution forte fasse aux enjeux environnementaux actuels.
+Emanuel Repérant, gérant du GFC Lu Picatau, sera présent pour nous aider à faire naître notre propre GFC et ainsi contribuer à la préservation de notre patrimoine naturel. 
+ 
+renseignements: Margaux Bordes 07 81 64 34 97
+ 
+ 
+***********
+ 
+ 
+Et pour début avril, trois dates à retenir
+ 
+ 
+ 
+Samedi 2 avril
+20h30
+ 
+LA TROUPE DES DEUX MONDES
+de Champagnac de Belair jouera au Café
+ 
+"L'opposé du contraire"
+de Martial Courcier
+ 
+Quand un peintre en batiment
+remet en questions les théories d'un philosophe...
+ 
+tarif libre (au chapeau).......................................Réservation: 06 84 19 06 17
+ 
+ 
+***********
+ 
+ 
+Dimanche 3 avril
+8h30
+ 
+rando "petit patrimoine"
+ organisée par l'Amicale Laïque de Léguillac
+et le club Histoire et Patrimoine de la Tour Blanche.
+ 
+renseignements: Philippe Brousse 06 84 19 06 17
+ 
+ 
+**********
+ 
+ 
+mardi 12 avril
+Café Oc
+ 
+Venetz lo dimars 12 d'abriu a 7 oras aprep miegjorn per veire lo filme « De gòrja a aurelha”
+ 
+mardi 12 avril à 19h, projection du film
+"De gòrja a aurelha"
+en présence des réalisateurs Catarina et Alan Dunheton
+ 
+Bonjorn a vautres !
+“De gòrja a aurelha” es un filme documentari de Catarina e Alan Donheton, creat lo 27 d'octòbre 2020 dins l'encastre de l'Enchantada dotzesma e presentat aus cinemas de Nontronh en Dordonha e de Tula en Córresa. Son messatge principau es la transmission de la linga occitana
+ 
+Tras lo percors del'Ives Lavalade, toponimiste e militant occitan dau Lemosin, descrubem los tesmonhatges d'òmes e de femnas dau Peiregòrd Lemosin e de l'Occitania e daus pensaires que nos ajuden per comprener la situacion de la transmission de la linga occitana aüei, per analisar los traumatismes que menan a la perta de la linga mairala, per nos balhar lors punts de visda sociaus e antropologics, per fin de saber quala es la transmission de la linga occitana aüei.
+
+L'espiada simbolista conta l'avenir de la transmission emb un jarric bicentenari e una musica creada per l'ocasion.
+Tras nòstre viatge dins L'Occitania realizar aqueu filme, avem rencontrat dau monde convidós e esmovents : lo filme conta lor militantisme vigorós.
+'Laidonc, som urós de venir vos rencontrar e platussar coma vautres lo dimars 12 dau mes d'abriu ! A leu !
+Catarina e Alan Donheton
+ 
+ 
+************
+ 
+ 
+Notez-le dès maintenant dans vos agendas...
+ 
+"LE PETIT TOIT D'ÉTOILES"
+ 
+aura lieu cette année!!
+ 
+le samedi 17 et dimanche 18 septembre
+ 
+********
+ 
+ 
  
 
