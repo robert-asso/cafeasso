@@ -235,6 +235,8 @@ soirée ciné
  
 Février 1939. Submergé par le flot de Républicains fuyant la dictature franquiste, le gouvernement français les parque dans des camps. Deux hommes séparés par les barbelés vont se lier d’amitié. L’un est gendarme, l’autre est dessinateur. De Barcelone à New York, l'histoire vraie de Josep Bartolí, combattant antifranquiste et artiste d'exception.
  <br/> 
+ ![120x160-josep-609a603d3f665](https://user-images.githubusercontent.com/77194514/156891719-964152b5-0833-46be-a69a-1391aefd9176.jpg)
+
  
  Participation... au chapeau
  ***********
