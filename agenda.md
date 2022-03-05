@@ -15,7 +15,7 @@ Chasdun pòrta son minjat e n'um boira tot aquò. Chacun apporte son repas et on
 fin exemple -->
 
 
-POur vous tenir au courant des annulations et des evenements de dernières minutes
+Pour vous tenir au courant des annulations et des évenements de dernières minutes
 Visitez régulièrement le site ! :
 <br/>
 I/ La prog'permanente
@@ -162,7 +162,7 @@ https://violainedebien.cabanova.com
  
  
  
-DIMANCHE 13 MARS, 10h à 17h
+## DIMANCHE 13 MARS, 10h à 17h
  
 STAGE Improvisation
  
