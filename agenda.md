@@ -129,5 +129,64 @@ Contact: Toby: 06 04 45 19 39
 <br/>
 <br/>
 ## II/ LA PROG AU JOUR LE JOUR
-
+<br/>
+<br/>
+<br/>
+ 
+## SAMEDI 12 MARS, 10h à 18h30
+ 
+Journée bien-être
+ 
+ 
+Rdv 10h thé-café-petits gâteaux
+ 
+10h30-12h30 conférence Kinésiologie Humaine et Animale avec Tânia Trigo
+Naturopathie et PsychoSomatique avec Esther Carnet
+Venez découvrir ou approfondir chacune de ces deux Pratiques au travers d’une petite Conférence. En quoi consistent-elles ? Dans quelles situations peut-on y avoir recours ?
+ 
+Repas tiré du sac
+ 
+14h-16h Vibre en corps (danse libre) avec Violaine Debien et Ako
+Prix en conscience, entre 10 et 20 euros.
+ 
+17h-18h30  Kirtan avec Séverine, Cédric et Guillaume
+Venez participer, chanter et danser librement avec le groupe de kirtan BLISS : des chants sacrés et des mantras de divers horizons, mis en musique avec amour. Harmonium aux accents reggae, guitare et percussions accompagneront la vibration puissante des mantras. Par-delà les codes du genre, laisser l’âme s’exprimer est la seule chose qui compte !
+Prix libre.
+ 
+Contact: Violaine Debien
+https://violainedebien.cabanova.com
+06 64 17 06 02
+ 
+ 
+************
+ 
+ 
+ 
+DIMANCHE 13 MARS, 10h à 17h
+ 
+STAGE Improvisation
+ 
+ 
+Ouvert aux adultes et adolescents à partir de 15 ans.
+ 
+Déroulement
+Quel que soit l'âge, l'approche est ludique, car il s'agit
+de plaisir avant tout, de jouer.
+Comment faire vivre autrement le corps, la voix, l'espace, les mots...
+Venez goûter à l’improvisation, explorer des territoires parfois insoupçonnés, chuchoter vos cris,
+ou hurler vos silences…
+Une aventure individuelle et collective pour apprendre
+à utiliser nos forces, rire de nos difficultés, à apprivoiser l’inconnu,
+à écouter, proposer et créer, ensemble.
+ 
+Intervenante
+Isis Eymery, anciennement comédienne et metteur en scène, je dirige
+des ateliers de théâtre et d’improvisation pour enfants, adolescents et adultes depuis plus de 20 ans.
+ 
+Prix libre,
+Auberge espagnole le midi,
+A partir de 8 personnes et jusqu'à 15.
+ 
+Contact: Isis 06.75.60.85.11
+ 
 
