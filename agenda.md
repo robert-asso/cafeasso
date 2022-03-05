@@ -287,6 +287,8 @@ réunion d'information sur La possible création d’un Groupement Forestier Cit
 Le GFC est un moyen d’action rapide et efficace pour lutter contre la multiplication des coupes rases en Périgord vert et la perte de biodiversité engendrée.
 Acquérir collectivement des parcelles de forêts, afin de les protéger et de les gérer durablement est une solution forte fasse aux enjeux environnementaux actuels.
 Emanuel Repérant, gérant du GFC Lu Picatau, sera présent pour nous aider à faire naître notre propre GFC et ainsi contribuer à la préservation de notre patrimoine naturel. 
+![DSCN0277](https://user-images.githubusercontent.com/77194514/156892908-3e598888-746a-4549-b6b0-4e972a9ae995.jpeg)
+
  
 renseignements: Margaux Bordes 07 81 64 34 97
  
