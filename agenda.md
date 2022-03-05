@@ -219,7 +219,9 @@ Café paysan
 Soirée débat autour du livre »Reprendre la terre aux machines »
 en présence d’un des auteurs .
 renseignements: Jean-Luc 06 80 28 00 57
-![Reprendre_la_terre_aux_machines](https://user-images.githubusercontent.com/77194514/156891276-60f2ab8e-a84e-4fb5-a0dc-e76c67c1ce2d.jpg)
+
+![Reprendre_la_terre_aux_machines](https://user-images.githubusercontent.com/77194514/156891418-7334d4ef-5aee-4b8a-b434-62bcdd37aa25.jpg)
+
 
  *********
  <br/>
