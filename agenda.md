@@ -277,7 +277,7 @@ www.atelier-la-renverse.com / Lien : www.feldenkrais-france.org
  ************
   <br/>
   <br/>
-## MARDI 27 MARS A 18H30
+## DIMANCHE 27 MARS A 18H30
  <br/>
 Réunion d'information et de reflexion sur la création d’un Groupement Forestier Citoyen (GFC)
  <br/>
