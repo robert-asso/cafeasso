@@ -150,7 +150,9 @@ renseignements: Margaux Bordes 07 81 64 34 97
  
 ## Vendredi 1er Avril ##
 <br/>
-## VERNISSAGE DE L'EXPO DE LEO ET STEPHANIE
+## VERNISSAGE DE L'EXPO ##
+
+## DE LEO ET STEPHANIE ##
   <br/>
   Juste avant la scène ouverte à 20h30
   <br/>
