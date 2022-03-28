@@ -134,21 +134,10 @@ Contact: Toby: 06 04 45 19 39
 <br/>
 <br/>
  
-## ANULATION DE LA SOIREE CREATION D'UN GROUPEMENT FORESTIER CITOYEN ## 
+## ANULATION DE LA SOIREE CREATION D'UN GROUPEMENT FORESTIER CITOYEN DU 29 MARS à 18h30 ## 
   <br/>
-L'anilatrice est malade,  la soirée est reportée, nous vous tiendrons informé.
+L'animatrice étant malade,  la soirée est reportée, nous vous tiendrons informé.
 
-  <br/>
-## MARDI 29 MARS A 18H30
- <br/>
-Réunion d'information et de reflexion sur la création d’un Groupement Forestier Citoyen (GFC)
- <br/>
-Le GFC est un moyen d’action rapide et efficace pour lutter contre la multiplication des coupes rases en Périgord vert et la perte de biodiversité engendrée.
-Acquérir collectivement des parcelles de forêts, afin de les protéger et de les gérer durablement est une solution forte fasse aux enjeux environnementaux actuels.
-Emanuel Repérant, gérant du GFC Lu Picatau, sera présent pour nous aider à faire naître notre propre GFC et ainsi contribuer à la préservation de notre patrimoine naturel. 
-![DSCN0277](https://user-images.githubusercontent.com/77194514/156892908-3e598888-746a-4549-b6b0-4e972a9ae995.jpeg)
-
- 
 renseignements: Margaux Bordes 07 81 64 34 97
  
  ***********
