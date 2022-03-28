@@ -102,7 +102,7 @@ Contact: Luc / 06 26 47 43 94
 ## Café Décroissant 
 <br/>
 3ème vendredi de chaque mois à 19h30
-<br/>  ANNULATION CE 18 MARS
+
 <br/>
 Contact: thdharveng@yahoo.fr
 
