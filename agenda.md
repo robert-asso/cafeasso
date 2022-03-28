@@ -136,8 +136,10 @@ Contact: Toby: 06 04 45 19 39
  
 ## ANULATION DE LA SOIREE DU 29 MARS ##
 <br/>
-## CREATION D'UN GROUPEMENT FORESTIER ##
-  <br/>
+## CREATION D'UN G.F.C ##
+<br/>
+(Groupement forestier citoyen)
+ <br/>
 L'animatrice étant malade,  la soirée est reportée, nous vous tiendrons informé.
 
 renseignements: Margaux Bordes 07 81 64 34 97
