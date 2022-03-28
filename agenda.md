@@ -149,11 +149,13 @@ renseignements: Margaux Bordes 07 81 64 34 97
   <br/>
  
 ## Vendredi 1er Avril ##
-Juste avant la scène ouverte, VERNISSAGE DE L4EXPOSITION DE LEO ET STEPHANIE
+## VERNISSAGE DE L'EXPOSITION DE LEO ET STEPHANIE
   <br/>
+  Juste avant la scène ouverte à 20h30
   <br/>
   ![expo café2](https://user-images.githubusercontent.com/77194514/160474721-bd798979-38b8-483b-bc1c-1aab2dfd978a.jpg)
-
+ <br/>
+  <br/>
  ## SAMEDI 02 AVRIL 20H30
  <br/>
 LA TROUPE DES DEUX MONDES
