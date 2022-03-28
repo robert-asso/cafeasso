@@ -154,7 +154,7 @@ renseignements: Margaux Bordes 07 81 64 34 97
 
 ## DE LEO ET STEPHANIE ##
   <br/>
-  Juste avant la scène ouverte à 20h30
+  Juste avant la scène ouverte à 19h30
   <br/>
   ![expo café2](https://user-images.githubusercontent.com/77194514/160474721-bd798979-38b8-483b-bc1c-1aab2dfd978a.jpg)
  <br/>
