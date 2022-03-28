@@ -134,9 +134,9 @@ Contact: Toby: 06 04 45 19 39
 <br/>
 <br/>
  
-## ANULATION DE LA SOIREE CREATION D'UN GROUPEMENT FORESTIER ##
+## ANULATION DE LA SOIREE DU 29 MARS ##
 <br/>
-## CITOYEN DU 29 MARS à 18h30 ## 
+## CREATION D'UN GROUPEMENT FORESTIER ##
   <br/>
 L'animatrice étant malade,  la soirée est reportée, nous vous tiendrons informé.
 
