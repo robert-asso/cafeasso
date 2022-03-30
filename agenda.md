@@ -17,14 +17,13 @@ fin exemple -->
 
 ## Pour vous tenir au courant des annulations et des évenements de dernières minutes ##
 <br/>
- <br/>
+
 ## Visitez régulièrement le site ! ##
 <br/>
 I/ La prog'permanente
 <br/>
 II/ La prog au jour le jour
 <br/>
-
 ##  I/ La prog' permanente
 <br/> 
 **S'il n'y a pas d'annonce d'annulation ces ateliers et soirées ont bien lieu**
@@ -229,7 +228,7 @@ Contact : Guilhem : 06 31 40 77 26
 ## VENDREDI 29 AVRIL à 21h ##
  <br/>
   <br/>
-## Concert de Catch 24 à 21h ##
+## Concert de Catch 24  ##
  <br/>
  Goupe Britannico-français
  ![CATCH 24 ](https://user-images.githubusercontent.com/77194514/160853735-bfefb958-dd0d-4ccd-9b65-b05336b1bdb5.jpg)
