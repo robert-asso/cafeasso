@@ -241,7 +241,9 @@ Contact : Guilhem : 06 31 40 77 26
   <br/>
  Contact : Thibault : 05 53 56 85 77
   <br/>
-   <br/>
+  Nous avons besoins de vous autres bénévoles, pour s'inscrire c'est là:
+    <br/>
+  https://framadate.org/JUvgOslVBD9lzH5W
    ## SAMEDI 30 AVRIL ## 
    
    <br/>
