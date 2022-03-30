@@ -220,8 +220,10 @@ en présence des réalisateurs Catarina et Alan Dunheton
   « La puissance et la joie», telle pourrait être la devise de ce groupe de punk-ska qui écume les routes depuis 1998. Zéro Talent c'est une section rythmique qui maîtrise son sujet, une section cuivres (trompette, trombone, saxo) efficace et dynamique, et des paroles en français qui abordent différents sujets de société.
 ![nouvelle photo presse ZERO TALENT](https://user-images.githubusercontent.com/77194514/160851146-be305fa8-875d-460d-b982-2362b04b69dc.jpg)
  <br/>
+ <br/>
 Entrée au chapeau .
  <br/>
+  <br/>
 Nous avons besoin de bénévoles . Inscrivez vous ci dessous :
  <br/>
 https://framadate.org/W1aiF6bXBCwhiRPU
