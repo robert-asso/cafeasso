@@ -213,18 +213,45 @@ en présence des réalisateurs Catarina et Alan Dunheton
  <br/> 
 ## SAMEDI 23 AVRIL à 21h ##
   <br/>
-  <br/>
- ## CONCERT DE "ZERO TALENT" (PUNK-SKA) ##
+  ## CONCERT DE "ZERO TALENT" (PUNK-SKA) ##
   <br/>
   <br/>
   « La puissance et la joie», telle pourrait être la devise de ce groupe de punk-ska qui écume les routes depuis 1998. Zéro Talent c'est une section rythmique qui maîtrise son sujet, une section cuivres (trompette, trombone, saxo) efficace et dynamique, et des paroles en français qui abordent différents sujets de société.
 ![nouvelle photo presse ZERO TALENT](https://user-images.githubusercontent.com/77194514/160851146-be305fa8-875d-460d-b982-2362b04b69dc.jpg)
+ <br/>
 Entrée au chapeau . 
  <br/>
 Contact : Guilhem : 06 31 40 77 26
 ************
- 
- 
+  <br/>
+## VENDREDI 29 AVRIL à 21h ##
+ <br/>
+  <br/>
+## Concert de Catch 24 à 21h ##
+ <br/>
+ Goupe Britannico-français
+ ![CATCH 24 ](https://user-images.githubusercontent.com/77194514/160853735-bfefb958-dd0d-4ccd-9b65-b05336b1bdb5.jpg)
+ <br/>
+ Entrée au chapeau.
+  <br/>
+ Contact : Thibault : 05 53 56 85 77
+  <br/>
+   <br/>
+   ## SAMEDI 30 AVRIL ## 
+    <br/>
+   <br/>
+ ## "Prends-en de la Graine" aux Halles de la Meyfrénie à Verteillac ## 
+un événement festif et engagé autour de semences, plants et de la culture : 
+ 10h :
+- Troc de pantes (sur inscription) :échanges de plants, graines, petits matériels 
+- Ventes de semence par Kokopelli
+- Libraire PermaCulturelle
+- Atelier land Art et compostage
+#  Buvette par le café Associatif de Léguillac de Cercles
+13h00 : Auberge Espagnole
+14h30: Table ronde autour des semences paysannes, l'histoire, l'intérêt aujourd'hui et de demain avec professionnels agricoles et AcclimaTerra (comité scientifique Nouvelle Aquitaine)
+
+
 ## NOTEZ LE DES MAINTENANT...
  <br/>
  <br/>
