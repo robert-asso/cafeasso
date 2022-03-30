@@ -134,16 +134,7 @@ Contact: Toby: 06 04 45 19 39
 <br/>
 <br/>
  
-## ANULATION DE LA SOIREE DU 29 MARS ##
-<br/>
-## CREATION D'UN G.F.C ##
-<br/>
-(Groupement forestier citoyen)
- <br/>
-L'animatrice étant malade,  la soirée est reportée, nous vous tiendrons informé.
 
-renseignements: Margaux Bordes 07 81 64 34 97
- 
  ***********
   <br/>
   <br/>
@@ -159,6 +150,7 @@ renseignements: Margaux Bordes 07 81 64 34 97
   ![expo café2](https://user-images.githubusercontent.com/77194514/160474721-bd798979-38b8-483b-bc1c-1aab2dfd978a.jpg)
  <br/>
   <br/>
+  En lien avec son expo, Stephanie propose un atelier le samedi 21 Mai de 15h à 17h. Précisions suivront en temps voulu.
  ## SAMEDI 02 AVRIL 20H30
  <br/>
 LA TROUPE DES DEUX MONDES
