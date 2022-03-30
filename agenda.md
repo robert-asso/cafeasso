@@ -259,7 +259,9 @@ un événement festif et engagé autour de semences, plants et de la culture :
 14h30: Table ronde autour des semences paysannes, l'histoire, l'intérêt aujourd'hui et de demain avec professionnels agricoles et AcclimaTerra (comité scientifique Nouvelle Aquitaine)
 <br/>
  <br/>
-
+ Nous avons besoin de bénévoles , inscription ci-dessous
+  <br/>
+https://framadate.org/eZG6Pn49RvpWyMQD
 
  
 ## LE PETIT TOIT D'ÉTOILES
