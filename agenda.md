@@ -238,7 +238,7 @@ Contact : Guilhem : 06 31 40 77 26
   <br/>
    <br/>
    ## SAMEDI 30 AVRIL ## 
-    <br/>
+   
    <br/>
  ## "Prends-en de la Graine" aux Halles de la Meyfrénie à Verteillac ## 
 un événement festif et engagé autour de semences, plants et de la culture : 
@@ -250,11 +250,10 @@ un événement festif et engagé autour de semences, plants et de la culture :
 #  Buvette par le café Associatif de Léguillac de Cercles
 13h00 : Auberge Espagnole
 14h30: Table ronde autour des semences paysannes, l'histoire, l'intérêt aujourd'hui et de demain avec professionnels agricoles et AcclimaTerra (comité scientifique Nouvelle Aquitaine)
+<br/>
+ <br/>
 
 
-## NOTEZ LE DES MAINTENANT...
- <br/>
- <br/>
  
 ## LE PETIT TOIT D'ÉTOILES
  <br/>
