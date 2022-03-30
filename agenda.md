@@ -170,14 +170,17 @@ de Martial Courcier
 Quand un peintre en batiment
 remet en questions les théories d'un philosophe...
  
-tarif libre (au chapeau).......................................Réservation: 06 84 19 06 17
+tarif libre (au chapeau)
+<br/>
+
+Contact: 06 84 19 06 17
  
  ***********
  
  
 ## DIMANCHE 03 AVRIL 8H30
 <br/>
-Rando "petit patrimoine"
+# Rando "petit patrimoine"
 organisée par l'Amicale Laïque de Léguillac
 et le club Histoire et Patrimoine de la Tour Blanche.
  
@@ -262,7 +265,8 @@ un événement festif et engagé autour de semences, plants et de la culture :
  Nous avons besoin de bénévoles , inscription ci-dessous
   <br/>
 https://framadate.org/eZG6Pn49RvpWyMQD
-
+<br/>
+ <br/>
  
 ## LE PETIT TOIT D'ÉTOILES
  <br/>
