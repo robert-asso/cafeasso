@@ -15,8 +15,10 @@ Chasdun pòrta son minjat e n'um boira tot aquò. Chacun apporte son repas et on
 fin exemple -->
 
 
-Pour vous tenir au courant des annulations et des évenements de dernières minutes
-Visitez régulièrement le site ! :
+## Pour vous tenir au courant des annulations et des évenements de dernières minutes ##
+<br/>
+ <br/>
+## Visitez régulièrement le site ! ##
 <br/>
 I/ La prog'permanente
 <br/>
