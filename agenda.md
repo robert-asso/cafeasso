@@ -160,7 +160,7 @@ Contact: Toby: 06 04 45 19 39
  ## SAMEDI 02 AVRIL 20H30
  <br/>
    <br/>
-LA TROUPE DES DEUX MONDES
+## LA TROUPE DES DEUX MONDES
 de Champagnac de Belair jouera au Café
  
 "L'opposé du contraire"
@@ -185,7 +185,25 @@ renseignements: Philippe Brousse 06 84 19 06 17
  **********
   <br/>
   <br/>
- 
+## SAMEDI 09 AVRIL à 20h ##
+<br/>
+## et ##
+  <br/>
+## DIMANCHE 10 AVRIL ##
+<br/>
+  <br/>
+  # AKO "Musique de mon monde"
+  <br/>
+  <br/>
+  ![Affiche concert AKO](https://user-images.githubusercontent.com/77194514/160848916-7eae8f01-2cc1-47c3-bd74-f493591b5f91.jpg)
+  <br/>
+  <br/>
+  Spectacle éponyme de ma création musicale, “Musique de mon monde” est une invitation, une porte ouverte sur mon univers de sons, une exploration commune des différents pays(ages) dessinés par mes instruments et ma musique.
+Dans cet univers intimiste et dynamique, les origines des morceaux comme des instruments sont contées. Ce qui fait de ce spectacle/concert un moment de découverte musicale autant que “culturel”.
+
+
+
+  
 ## MARDI 12 AVRIL
 <br/>
 Café Oc
