@@ -198,11 +198,9 @@ renseignements: Philippe Brousse 06 84 19 06 17
   <br/>
   Spectacle éponyme de ma création musicale, “Musique de mon monde” est une invitation, une porte ouverte sur mon univers de sons, une exploration commune des différents pays(ages) dessinés par mes instruments et ma musique.
 Dans cet univers intimiste et dynamique, les origines des morceaux comme des instruments sont contées. Ce qui fait de ce spectacle/concert un moment de découverte musicale autant que “culturel”.
-
-
-
-  
-## MARDI 12 AVRIL
+ <br/>
+ <br/>
+  ## MARDI 12 AVRIL ##
 <br/>
 Café Oc
  
@@ -211,18 +209,19 @@ Venetz lo dimars 12 d'abriu a 7 oras aprep miegjorn per veire lo filme « De gò
 mardi 12 avril à 19h, projection du film
 "De gòrja a aurelha"
 en présence des réalisateurs Catarina et Alan Dunheton
- 
-Bonjorn a vautres !
-“De gòrja a aurelha” es un filme documentari de Catarina e Alan Donheton, creat lo 27 d'octòbre 2020 dins l'encastre de l'Enchantada dotzesma e presentat aus cinemas de Nontronh en Dordonha e de Tula en Córresa. Son messatge principau es la transmission de la linga occitana
- 
-Tras lo percors del'Ives Lavalade, toponimiste e militant occitan dau Lemosin, descrubem los tesmonhatges d'òmes e de femnas dau Peiregòrd Lemosin e de l'Occitania e daus pensaires que nos ajuden per comprener la situacion de la transmission de la linga occitana aüei, per analisar los traumatismes que menan a la perta de la linga mairala, per nos balhar lors punts de visda sociaus e antropologics, per fin de saber quala es la transmission de la linga occitana aüei.
-
-L'espiada simbolista conta l'avenir de la transmission emb un jarric bicentenari e una musica creada per l'ocasion.
-Tras nòstre viatge dins L'Occitania realizar aqueu filme, avem rencontrat dau monde convidós e esmovents : lo filme conta lor militantisme vigorós.
-'Laidonc, som urós de venir vos rencontrar e platussar coma vautres lo dimars 12 dau mes d'abriu ! A leu !
-Catarina e Alan Donheton
- 
- 
+ <br/>
+ <br/> 
+## SAMEDI 23 AVRIL à 21h ##
+  <br/>
+  <br/>
+ ## CONCERT DE "ZERO TALENT" (PUNK-SKA) ##
+  <br/>
+  <br/>
+  « La puissance et la joie», telle pourrait être la devise de ce groupe de punk-ska qui écume les routes depuis 1998. Zéro Talent c'est une section rythmique qui maîtrise son sujet, une section cuivres (trompette, trombone, saxo) efficace et dynamique, et des paroles en français qui abordent différents sujets de société.
+![nouvelle photo presse ZERO TALENT](https://user-images.githubusercontent.com/77194514/160851146-be305fa8-875d-460d-b982-2362b04b69dc.jpg)
+Entrée au chapeau . 
+ <br/>
+Contact : Guilhem : 06 31 40 77 26
 ************
  
  
