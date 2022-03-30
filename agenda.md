@@ -151,6 +151,8 @@ Contact: Toby: 06 04 45 19 39
  <br/>
   <br/>
   En lien avec son expo, Stephanie propose un atelier le samedi 21 Mai de 15h à 17h. Précisions suivront en temps voulu.
+   <br/>
+  Contact Stéphanie 0643268373
  ## SAMEDI 02 AVRIL 20H30
  <br/>
 LA TROUPE DES DEUX MONDES
