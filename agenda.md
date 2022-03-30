@@ -150,11 +150,16 @@ Contact: Toby: 06 04 45 19 39
   ![expo café2](https://user-images.githubusercontent.com/77194514/160474721-bd798979-38b8-483b-bc1c-1aab2dfd978a.jpg)
  <br/>
   <br/>
-  En lien avec son expo, Stephanie propose un atelier le samedi 21 Mai de 15h à 17h. Précisions suivront en temps voulu.
+  En lien avec son expo, Stephanie propose un atelier le samedi 21 Mai de 15h à 17h.
+  <br/>
+  Des précisions suivront en temps   voulu.
    <br/>
   Contact Stéphanie 0643268373
+ <br/>
+ <br/>
  ## SAMEDI 02 AVRIL 20H30
  <br/>
+   <br/>
 LA TROUPE DES DEUX MONDES
 de Champagnac de Belair jouera au Café
  
