@@ -193,7 +193,7 @@ renseignements: Philippe Brousse 06 84 19 06 17
   <br/>
 ## SAMEDI 09 AVRIL à 20h ##
 <br/>
-## DIMANCHE 10 AVRIL à 15h ##
+## DIMANCHE 10 AVRIL à 15h30 ##
 <br/>
  <br/>
   # AKO "Musique de mon monde"
