@@ -196,7 +196,9 @@ renseignements: Philippe Brousse 06 84 19 06 17
 <br/>
 # AKO "Musique de mon monde"
 <br/>
-et de 14H30 à 16h30  Atelier "Vibre en corps" avec Violaine Debien accompagnée par Ako.
+# et de 14H30 à 16h30
+<br/>
+# Atelier "Vibre en corps" avec Violaine Debien accompagnée par Ako.
 ![2022 04 9 Lezidéfuz ](https://user-images.githubusercontent.com/77194514/161069351-35e49b52-5fc7-412a-8c7b-b54ce967f4dc.jpg)
 
 
