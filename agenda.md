@@ -137,9 +137,9 @@ Contact: Toby: 06 04 45 19 39
  
 ## Vendredi 1er Avril ##
 <br/>
-## VERNISSAGE DE L'EXPO ##
+# VERNISSAGE DE L'EXPO 
 
-## DE LEO ET STEPHANIE ##
+# DE LEO ET STEPHANIE 
   <br/>
   Juste avant la scène ouverte à 19h30
   <br/>
@@ -179,7 +179,7 @@ On a besoin de bénévoles  et c'est par ici:
  ***********
  
  
-## DIMANCHE 03 AVRIL 8H30
+## DIMANCHE 03 AVRIL 8H30 ##
 <br/>
 # Rando "petit patrimoine"
 organisée par l'Amicale Laïque de Léguillac
@@ -207,7 +207,7 @@ Dans cet univers intimiste et dynamique, les origines des morceaux comme des ins
  <br/>
   ## MARDI 12 AVRIL ##
 <br/>
-Café Oc
+# Café Oc
  
 Venetz lo dimars 12 d'abriu a 7 oras aprep miegjorn per veire lo filme « De gòrja a aurelha”
  
@@ -218,7 +218,7 @@ en présence des réalisateurs Catarina et Alan Dunheton
  <br/> 
 ## SAMEDI 23 AVRIL à 21h ##
   <br/>
-  ## CONCERT DE "ZERO TALENT" (PUNK-SKA) ##
+  # CONCERT DE "ZERO TALENT" (PUNK-SKA) 
   <br/>
   <br/>
   « La puissance et la joie», telle pourrait être la devise de ce groupe de punk-ska qui écume les routes depuis 1998. Zéro Talent c'est une section rythmique qui maîtrise son sujet, une section cuivres (trompette, trombone, saxo) efficace et dynamique, et des paroles en français qui abordent différents sujets de société.
@@ -238,7 +238,7 @@ Contact : Guilhem : 06 31 40 77 26
 ## VENDREDI 29 AVRIL à 21h ##
  <br/>
   <br/>
-## Concert de Catch 24  ##
+# Concert de Catch 24  
  <br/>
  Goupe Britannico-français
  ![CATCH 24 ](https://user-images.githubusercontent.com/77194514/160853735-bfefb958-dd0d-4ccd-9b65-b05336b1bdb5.jpg)
@@ -253,7 +253,7 @@ Contact : Guilhem : 06 31 40 77 26
    ## SAMEDI 30 AVRIL ## 
    
    <br/>
- ## "Prends-en de la Graine" aux Halles de la Meyfrénie à Verteillac ## 
+ # "Prends-en de la Graine" aux Halles de la Meyfrénie à Verteillac 
 un événement festif et engagé autour de semences, plants et de la culture : 
  10h :
 - Troc de pantes (sur inscription) :échanges de plants, graines, petits matériels 
@@ -273,9 +273,9 @@ https://framadate.org/eZG6Pn49RvpWyMQD
  
 ## LE PETIT TOIT D'ÉTOILES
  <br/>
-## aura lieu cette année
+# aura lieu cette année
  <br/>
-## les samedi 17 et dimanche 18 septembre
+# les samedi 17 et dimanche 18 septembre
  
 ********
  
