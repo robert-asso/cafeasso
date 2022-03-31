@@ -166,7 +166,8 @@ Quand un peintre en batiment
 remet en questions les théories d'un philosophe...
  <br/>
  <br/>
- [Cafe_OpposeDuContraire_042022.docx](https://github.com/robert-asso/cafeasso/files/8388156/Cafe_OpposeDuContraire_042022.docx)
+[Cafe_OpposeDuContraire_042022.pdf](https://github.com/robert-asso/cafeasso/files/8388336/Cafe_OpposeDuContraire_042022.pdf)
+
 
 tarif libre (au chapeau)
 <br/>
