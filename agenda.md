@@ -153,7 +153,7 @@ Contact: Toby: 06 04 45 19 39
   Contact Stéphanie 0643268373
  <br/>
  <br/>
- ## SAMEDI 02 AVRIL 20H30
+ ## SAMEDI 02 AVRIL 20H30 ##
  <br/>
    <br/>
 ## LA TROUPE DES DEUX MONDES
@@ -164,12 +164,18 @@ de Martial Courcier
  
 Quand un peintre en batiment
 remet en questions les théories d'un philosophe...
- 
+ <br/>
+ <br/>
+ [Cafe_OpposeDuContraire_042022.docx](https://github.com/robert-asso/cafeasso/files/8388156/Cafe_OpposeDuContraire_042022.docx)
+
 tarif libre (au chapeau)
 <br/>
 
 Contact: 06 84 19 06 17
- 
+<br/>
+On a besoin de bénévoles  et c'est par ici:
+<br/>
+ https://framadate.org/zBBOQDJOhA79WsHd
  ***********
  
  
