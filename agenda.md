@@ -91,7 +91,7 @@ Tous les 28 du mois à 19h - ouvert à tout.e.s
 
 2ème mardi de chaque mois de 19h à 22h  
 <br/>
-## A 18H30 EXCEPTIONELLEMENT CE MARDI 12 AVRIL 
+# A 18H30 EXCEPTIONELLEMENT CE MARDI 12 AVRIL 
 <br/>
 Repas en auberge espagnole, apportez vos couverts.
 <br/>
