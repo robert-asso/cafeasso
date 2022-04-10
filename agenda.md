@@ -90,6 +90,11 @@ Tous les 28 du mois à 19h - ouvert à tout.e.s
 <br/>
 
 2ème mardi de chaque mois de 19h à 22h  
+<br/>
+<br/>
+## exceptionellement à 18h30 ce mardi 12 Avril ##
+<br/>
+<br/>
 Repas en auberge espagnole, apportez vos couverts.
 <br/>
 Chasdun pòrta son minjat, n'um boira tot aquò, e se parla occitan!
@@ -219,9 +224,9 @@ Dans cet univers intimiste et dynamique, les origines des morceaux comme des ins
 <br/>
 # Café Oc
  
-Venetz lo dimars 12 d'abriu a 7 oras aprep miegjorn per veire lo filme « De gòrja a aurelha”
+Venetz lo dimars 12 d'abriu a 6 oras 30 aprep miegjorn per veire lo filme « De gòrja a aurelha”
  
-mardi 12 avril à 19h, projection du film
+mardi 12 avril à 18h30, projection du film
 "De gòrja a aurelha"
 en présence des réalisateurs Catarina et Alan Dunheton
  <br/>
