@@ -209,8 +209,44 @@ Infos Troc de livres : 06 43 26 83 73 (Stéphanie)
  <br/>
  Présentation de « Solidarité Paysans »
 Venez découvrir une association nationale qui se mobilise et accompagne les agriculteurs en difficulté !
- 
+  <br/>
+ <br/>
+ ## VENDREDI 13 MAI A 20 h ##
+  <br/>
+![EDLV-Affiche-A5-300dpi](https://user-images.githubusercontent.com/77194514/164020601-23f39b7d-d444-4c30-9a51-a4e68b064bc3.jpg)
+<br/>
+ <br/> 
+ # Projection du film de Julien Peron
+  <br/>
+ Une école de la Forêt est entrain de voir le jourt à Lisle.
+ Un debat avec l'association "Nature d'Ecole"suivra la projection.
+ <br/>
+ <br/>
+ ## SAMEDI 14 MAI  à 21h ##
+  <br/>
+ <br/>
+ # CONCERT DE PIERROT LE NOIR
+  <br/>
+ <br/>
+ ![mail - AFFICHE COUTE_ Le christ en bois](https://user-images.githubusercontent.com/77194514/164024363-6a10279b-527c-425b-a167-e7d7c705403b.jpg)
+  <br/>
+ <br/>
+ Entrée au Chapeau
+  <br/>
+Contact: 06 80 28 00 57
+  <br/>
+ <br/>
+ ## MARDI 17 MAI à 18h30 ##
  
+ # GROUPEMENT FORESTIER CITOYEN
+ 
+La création d’un Groupement Forestier Citoyen (GFC) est un moyen d’action rapide et efficace pour lutter contre la multiplication des coupes rases en Périgord vert et la perte de biodiversité engendrée. Acquérir collectivement des parcelles de forêts, afin de les protéger et de les gérer durablement est une solution forte face aux enjeux environnementaux actuels. 
+Emmanuel Repérant, gérant du GFC Lu Picatau, sera présent pour nous aider à faire naître notre propre GFC et ainsi contribuer à la préservation de notre patrimoine naturel.
+renseignements: Margaux Bordes tel 07 81 64 34 96.
+
+ 
+
+
 ## LE PETIT TOIT D'ÉTOILES
  <br/>
 # aura lieu cette année
