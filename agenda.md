@@ -184,6 +184,32 @@ un événement festif et engagé autour de semences, plants et de la culture :
 https://framadate.org/eZG6Pn49RvpWyMQD
 <br/>
  <br/>
+ ## DIMANCHE 1er MAI  De 11H à 17h ##
+ 
+ # TROC DE FRINGUES ET LIVRES
+
+Troquer, donner, plutôt que jeter !
+
+Il y a dans ton armoire des vêtements que tu ne mets jamais ? D'autres qui sont en bon état mais que tu n'en peux plus de voir ? Allez hop, mets-les dans un sac que tu pourras déballer au café asso le 1er mai !
+Pour les livres, c'est pareil !
+Apporte des livres de toutes sortes (mais en bon état) que tu as envie de donner.
+Et peut-être que tu trouveras aussi ton bonheur dans les affaires apportées par les autres...
+Il n'y aura pas de stand à tenir mais le troc sera une sorte de "grand déballage collectif“, qui se tiendra dehors s'il fait beau ou dans la salle du café s'il pleut.
+Et bien sûr, il y aura aussi à boire et à discuter au bar !
+Pour midi, apporte ton panier repas ! On mange ensemble.
+
+Infos Troc de fringues : 06 45 02 34 25 (Céline)
+Infos Troc de livres : 06 43 26 83 73 (Stéphanie)
+<br/>
+ <br/>
+ ## JEUDI 12 MAI à 20h30
+ <br/>
+ <br/>
+ # CAFE PAYSAN
+ <br/>
+ Présentation de « Solidarité Paysans »
+Venez découvrir une association nationale qui se mobilise et accompagne les agriculteurs en difficulté !
+ 
  
 ## LE PETIT TOIT D'ÉTOILES
  <br/>
