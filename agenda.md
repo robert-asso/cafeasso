@@ -134,14 +134,9 @@ Contact: Toby: 06 04 45 19 39
 <br/>
 <br/>
 ## II/ LA PROG AU JOUR LE JOUR
-  <br/>
-  <br/>
- 
-## Vendredi 1er Avril ##
-
- 
+<br/>
 ## SAMEDI 23 AVRIL à 21h ##
-  <br/>
+<br/>
   # CONCERT DE "ZERO TALENT" (PUNK-SKA) 
   <br/>
   <br/>
