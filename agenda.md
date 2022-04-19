@@ -197,6 +197,9 @@ Et peut-être que tu trouveras aussi ton bonheur dans les affaires apportées pa
 Il n'y aura pas de stand à tenir mais le troc sera une sorte de "grand déballage collectif“, qui se tiendra dehors s'il fait beau ou dans la salle du café s'il pleut.
 Et bien sûr, il y aura aussi à boire et à discuter au bar !
 Pour midi, apporte ton panier repas ! On mange ensemble.
+ <br/>
+ <br/>
+<img width="474" alt="Troc" src="https://user-images.githubusercontent.com/77194514/164026662-a9b4949e-5f07-43cb-95bf-cae3a2638af5.png">
 
 Infos Troc de fringues : 06 45 02 34 25 (Céline)
 Infos Troc de livres : 06 43 26 83 73 (Stéphanie)
