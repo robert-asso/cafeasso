@@ -146,13 +146,9 @@ Contact: Toby: 06 04 45 19 39
 ![nouvelle photo presse ZERO TALENT](https://user-images.githubusercontent.com/77194514/160851146-be305fa8-875d-460d-b982-2362b04b69dc.jpg)
  <br/>
  <br/>
-Entrée au chapeau .
+Entrée: 6€ adhérent/ 8€
  <br/>
-  <br/>
-Nous avons besoin de bénévoles . Inscrivez vous ci dessous :
- <br/>
-https://framadate.org/W1aiF6bXBCwhiRPU
- <br/>
+
 Contact : Guilhem : 06 31 40 77 26
 ************
   <br/>
@@ -176,18 +172,12 @@ Contact : Guilhem : 06 31 40 77 26
    <br/>
  # "Prends-en de la Graine" aux Halles de la Meyfrénie à Verteillac 
 un événement festif et engagé autour de semences, plants et de la culture : 
- 10h :
-- Troc de pantes (sur inscription) :échanges de plants, graines, petits matériels 
-- Ventes de semence par Kokopelli
-- Libraire PermaCulturelle
-- Atelier land Art et compostage
+ 
 #  Buvette par le café Associatif de Léguillac de Cercles
-13h00 : Auberge Espagnole
-14h30: Table ronde autour des semences paysannes, l'histoire, l'intérêt aujourd'hui et de demain avec professionnels agricoles et AcclimaTerra (comité scientifique Nouvelle Aquitaine)
 <br/>
  <br/>
- contact :Eva DUQUESNE 07 83 68 56 47
- <br/>
+ ![Prends-en de la Graine !](https://user-images.githubusercontent.com/77194514/164018012-27460ab4-b39f-4fd8-a108-d0d49eda6ef6.jpg)
+
  <br/>
  Nous avons besoin de bénévoles , inscription ci-dessous
   <br/>
