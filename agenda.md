@@ -151,6 +151,8 @@ Entrée: 6€ adhérent/ 8€
 Contact : Guilhem : 06 31 40 77 26
 ************
   <br/>
+   <br/>
+    <br/>
 ## VENDREDI 29 AVRIL à 21h ##
 
 # Concert de Catch 24  
@@ -167,6 +169,7 @@ Contact : Guilhem : 06 31 40 77 26
   https://framadate.org/JUvgOslVBD9lzH5W
   <br/>
  <br/>
+  <br/>
    ## SAMEDI 30 AVRIL ## 
    
  # "Prends-en de la Graine" aux Halles de la Meyfrénie à Verteillac 
@@ -183,6 +186,7 @@ un événement festif et engagé autour de semences, plants et de la culture :
 https://framadate.org/eZG6Pn49RvpWyMQD
 <br/>
  <br/>
+  <br/>
  ## DIMANCHE 1er MAI  De 11H à 17h ##
  
  # TROC DE FRINGUES ET LIVRES
@@ -204,6 +208,7 @@ Infos Troc de fringues : 06 45 02 34 25 (Céline)
 Infos Troc de livres : 06 43 26 83 73 (Stéphanie)
 <br/>
  <br/>
+  <br/>
  ## JEUDI 12 MAI à 20h30
  
 # CAFE PAYSAN
@@ -212,6 +217,7 @@ Infos Troc de livres : 06 43 26 83 73 (Stéphanie)
 Venez découvrir une association nationale qui se mobilise et accompagne les agriculteurs en difficulté !
   <br/>
  <br/>
+  <br/>
  ## VENDREDI 13 MAI A 20 h ##
   <br/>
 ![EDLV-Affiche-A5-300dpi](https://user-images.githubusercontent.com/77194514/164020601-23f39b7d-d444-4c30-9a51-a4e68b064bc3.jpg)
@@ -221,6 +227,7 @@ Venez découvrir une association nationale qui se mobilise et accompagne les agr
   <br/>
  Une école de la Forêt est entrain de voir le jour à Lisle.
  Un debat avec l'association "Nature d'Ecole"suivra la projection.
+ <br/>
  <br/>
  <br/>
  ## SAMEDI 14 MAI A 21h ##
@@ -235,16 +242,20 @@ Venez découvrir une association nationale qui se mobilise et accompagne les agr
 Contact: 06 80 28 00 57
   <br/>
  <br/>
- ## MARDI 17 MAI à 18h30 ##
+ <br/>
+## MARDI 17 MAI à 18h30 ##
  
  # GROUPEMENT FORESTIER CITOYEN
  
 La création d’un Groupement Forestier Citoyen (GFC) est un moyen d’action rapide et efficace pour lutter contre la multiplication des coupes rases en Périgord vert et la perte de biodiversité engendrée. Acquérir collectivement des parcelles de forêts, afin de les protéger et de les gérer durablement est une solution forte face aux enjeux environnementaux actuels. 
 Emmanuel Repérant, gérant du GFC Lu Picatau, sera présent pour nous aider à faire naître notre propre GFC et ainsi contribuer à la préservation de notre patrimoine naturel.
 <br/>
- renseignements: Margaux Bordes tel 07 81 64 34 96.
+<br/>
+Renseignements: Margaux Bordes tel 07 81 64 34 96.
  <br/>
  <br/>
+ <br/>
+
  ## SAMEDI 21 MAI  de 15 à 17h ##
  
  # ATELIER TABLEAU DE SABLE
@@ -279,9 +290,9 @@ généralement chez les fournisseurs de matériel artistique (Cultura, Action)
 Atelier de sable
 Contact Stéphanie 0643268373
 
-
- 
-
+<br/>
+ <br/>
+ <br/>
 
 ## LE PETIT TOIT D'ÉTOILES
  <br/>
