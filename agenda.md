@@ -137,7 +137,6 @@ Contact: Toby: 06 04 45 19 39
 <br/>
 <br/>
 ## SAMEDI 23 AVRIL à 21h ##
-<br/>
 
 # CONCERT DE "ZERO TALENT" (PUNK-SKA) 
   <br/>
@@ -153,8 +152,7 @@ Contact : Guilhem : 06 31 40 77 26
 ************
   <br/>
 ## VENDREDI 29 AVRIL à 21h ##
- <br/>
-  <br/>
+
 # Concert de Catch 24  
  <br/>
  Goupe Britannico-français
@@ -167,9 +165,10 @@ Contact : Guilhem : 06 31 40 77 26
   Nous avons besoins de vous autres bénévoles, pour s'inscrire c'est là:
     <br/>
   https://framadate.org/JUvgOslVBD9lzH5W
+  <br/>
+ <br/>
    ## SAMEDI 30 AVRIL ## 
    
-   <br/>
  # "Prends-en de la Graine" aux Halles de la Meyfrénie à Verteillac 
 un événement festif et engagé autour de semences, plants et de la culture : 
  
@@ -206,9 +205,8 @@ Infos Troc de livres : 06 43 26 83 73 (Stéphanie)
 <br/>
  <br/>
  ## JEUDI 12 MAI à 20h30
- <br/>
- <br/>
- # CAFE PAYSAN
+ 
+# CAFE PAYSAN
  <br/>
  Présentation de « Solidarité Paysans »
 Venez découvrir une association nationale qui se mobilise et accompagne les agriculteurs en difficulté !
@@ -221,19 +219,17 @@ Venez découvrir une association nationale qui se mobilise et accompagne les agr
  <br/> 
  # Projection du film de Julien Peron
   <br/>
- Une école de la Forêt est entrain de voir le jourt à Lisle.
+ Une école de la Forêt est entrain de voir le jour à Lisle.
  Un debat avec l'association "Nature d'Ecole"suivra la projection.
  <br/>
  <br/>
- ## SAMEDI 14 MAI  à 21h ##
-  <br/>
- <br/>
+ ## SAMEDI 14 MAI A 21h ##
+ 
  # CONCERT DE PIERROT LE NOIR
   <br/>
  <br/>
  ![mail - AFFICHE COUTE_ Le christ en bois](https://user-images.githubusercontent.com/77194514/164024363-6a10279b-527c-425b-a167-e7d7c705403b.jpg)
   <br/>
- <br/>
  Entrée au Chapeau
   <br/>
 Contact: 06 80 28 00 57
@@ -245,12 +241,12 @@ Contact: 06 80 28 00 57
  
 La création d’un Groupement Forestier Citoyen (GFC) est un moyen d’action rapide et efficace pour lutter contre la multiplication des coupes rases en Périgord vert et la perte de biodiversité engendrée. Acquérir collectivement des parcelles de forêts, afin de les protéger et de les gérer durablement est une solution forte face aux enjeux environnementaux actuels. 
 Emmanuel Repérant, gérant du GFC Lu Picatau, sera présent pour nous aider à faire naître notre propre GFC et ainsi contribuer à la préservation de notre patrimoine naturel.
-renseignements: Margaux Bordes tel 07 81 64 34 96.
+<br/>
+ renseignements: Margaux Bordes tel 07 81 64 34 96.
  <br/>
  <br/>
  ## SAMEDI 21 MAI  de 15 à 17h ##
- <br/>
- <br/>
+ 
  # ATELIER TABLEAU DE SABLE
  <br/>
 Objet réalisé : Un tableau de sable
@@ -267,7 +263,7 @@ bien marqués pour la première fois...c’est plus facile
 Un entrelacs simple ou des formes géométriques colorées, photographies
 peuvent s’y prêter
 <br/>
-Prix libre au-delà de 5 euros au moins pour le matériel
+# Prix libre au-delà de 5 euros au moins pour le matériel
 <br/>
 
 Les sables colorés sont vendus dans certaines braderies, magasins de bricolage
