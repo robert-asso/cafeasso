@@ -246,6 +246,43 @@ Contact: 06 80 28 00 57
 La création d’un Groupement Forestier Citoyen (GFC) est un moyen d’action rapide et efficace pour lutter contre la multiplication des coupes rases en Périgord vert et la perte de biodiversité engendrée. Acquérir collectivement des parcelles de forêts, afin de les protéger et de les gérer durablement est une solution forte face aux enjeux environnementaux actuels. 
 Emmanuel Repérant, gérant du GFC Lu Picatau, sera présent pour nous aider à faire naître notre propre GFC et ainsi contribuer à la préservation de notre patrimoine naturel.
 renseignements: Margaux Bordes tel 07 81 64 34 96.
+ <br/>
+ <br/>
+ ## SAMEDI 21 MAI  de 15 à 17h ##
+ <br/>
+ <br/>
+ # ATELIER TABLEAU DE SABLE
+ <br/>
+Objet réalisé : Un tableau de sable
+Durée : 2 heures
+Age minimum requis 14 ans (manipulation du cutter et dextérité...)
+Matériel fourni
+Papier polyphane non plastifié
+Sables de différentes teintes
+1 cutter de précision (lame courte de préférence)
+Facultatif Vernis colle transparent en bombe ou laque pour les cheveux fixation
+forte convient très bien
+APPORTER UN DESSIN format A4 /21-29,7 maximum avec des traits et couleurs
+bien marqués pour la première fois...c’est plus facile
+Un entrelacs simple ou des formes géométriques colorées, photographies
+peuvent s’y prêter
+<br/>
+Prix libre au-delà de 5 euros au moins pour le matériel
+<br/>
+
+Les sables colorés sont vendus dans certaines braderies, magasins de bricolage
+ou qui vendent du matériel artistique. La finesse du grain crée différentes
+textures
+Si vous souhaitez travaillez avec des sables naturels, récoltez une petite
+bouteille de sable. Passez au tamis fin pour enlever toutes les impuretés et les
+trop gros grains. Bien rincer à l’eau. Etaler sur du journal et laisser sécher avant
+de les stocker dans des bocaux.
+Le cutter de précision est un cutter qui se tient comme un stylo, on en trouve
+généralement chez les fournisseurs de matériel artistique (Cultura, Action)
+
+Atelier de sable
+Contact Stéphanie 0643268373
+
 
  
 
