@@ -135,9 +135,11 @@ Contact: Toby: 06 04 45 19 39
 <br/>
 ## II/ LA PROG AU JOUR LE JOUR
 <br/>
+<br/>
+
 ## SAMEDI 23 AVRIL à 21h ##
 <br/>
-  # CONCERT DE "ZERO TALENT" (PUNK-SKA) 
+# CONCERT DE "ZERO TALENT" (PUNK-SKA) 
   <br/>
   <br/>
   « La puissance et la joie», telle pourrait être la devise de ce groupe de punk-ska qui écume les routes depuis 1998. Zéro Talent c'est une section rythmique qui maîtrise son sujet, une section cuivres (trompette, trombone, saxo) efficace et dynamique, et des paroles en français qui abordent différents sujets de société.
