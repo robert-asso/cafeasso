@@ -232,7 +232,7 @@ Venez découvrir une association nationale qui se mobilise et accompagne les agr
  <br/>
  ## SAMEDI 14 MAI A 21h ##
  
- # CONCERT DE PIERROT LE NOIR
+ # CONCERT DE PIERROT NOIR
   <br/>
  <br/>
  ![mail - AFFICHE COUTE_ Le christ en bois](https://user-images.githubusercontent.com/77194514/164024363-6a10279b-527c-425b-a167-e7d7c705403b.jpg)
