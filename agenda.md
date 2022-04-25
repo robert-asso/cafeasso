@@ -136,6 +136,9 @@ Contact: Toby: 06 04 45 19 39
 ## II/ LA PROG AU JOUR LE JOUR
 <br/>
 <br/>
+# Lors de votre venue profitez de la belle (et lumineuse) expo des oeuvres de Léo et Stephanie
+<br/>
+<br/>
 ## SAMEDI 23 AVRIL à 21h ##
 
 # CONCERT DE "ZERO TALENT" (PUNK-SKA) 
