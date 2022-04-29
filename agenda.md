@@ -262,6 +262,10 @@ Renseignements: Margaux Bordes tel 07 81 64 34 96.
  ## SAMEDI 21 MAI  de 15 à 17h ##
  
  # ATELIER TABLEAU DE SABLE
+  <br/>
+  <br/>
+  ![sable steph](https://user-images.githubusercontent.com/77194514/165954793-392503af-9d10-4370-b4d1-abf11646a2ed.jpeg)
+
  <br/>
 Objet réalisé : Un tableau de sable
 Durée : 2 heures
