@@ -139,57 +139,7 @@ Contact: Toby: 06 04 45 19 39
 # Lors de votre venue profitez de la belle (et lumineuse) expo des oeuvres de Léo et Stephanie
 <br/>
 <br/>
-## SAMEDI 23 AVRIL à 21h ##
-
-# CONCERT DE "ZERO TALENT" (PUNK-SKA) 
-  <br/>
-  <br/>
-  « La puissance et la joie», telle pourrait être la devise de ce groupe de punk-ska qui écume les routes depuis 1998. Zéro Talent c'est une section rythmique qui maîtrise son sujet, une section cuivres (trompette, trombone, saxo) efficace et dynamique, et des paroles en français qui abordent différents sujets de société.
-![nouvelle photo presse ZERO TALENT](https://user-images.githubusercontent.com/77194514/160851146-be305fa8-875d-460d-b982-2362b04b69dc.jpg)
- <br/>
- <br/>
-Entrée: 6€ adhérent/ 8€
- <br/>
-
-Contact : Guilhem : 06 31 40 77 26
-************
-  <br/>
-   <br/>
-    <br/>
-## VENDREDI 29 AVRIL à 21h ##
-
-# Concert de Catch 24  
- <br/>
- Goupe Britannico-français
- ![CATCH 24 ](https://user-images.githubusercontent.com/77194514/160853735-bfefb958-dd0d-4ccd-9b65-b05336b1bdb5.jpg)
- <br/>
- Entrée au chapeau.
-  <br/>
- Contact : Thibault : 05 53 56 85 77
-  <br/>
-  Nous avons besoins de vous autres bénévoles, pour s'inscrire c'est là:
-    <br/>
-  https://framadate.org/JUvgOslVBD9lzH5W
-  <br/>
- <br/>
-  <br/>
-   ## SAMEDI 30 AVRIL ## 
-   
- # "Prends-en de la Graine" aux Halles de la Meyfrénie à Verteillac 
-un événement festif et engagé autour de semences, plants et de la culture : 
- 
-#  Buvette par le café Associatif de Léguillac de Cercles
-<br/>
- <br/>
- ![Prends-en de la Graine !](https://user-images.githubusercontent.com/77194514/164018012-27460ab4-b39f-4fd8-a108-d0d49eda6ef6.jpg)
-
- <br/>
- Nous avons besoin de bénévoles , inscription ci-dessous
-  <br/>
-https://framadate.org/eZG6Pn49RvpWyMQD
-<br/>
- <br/>
-  <br/>
+#
  ## DIMANCHE 1er MAI  De 11H à 17h ##
  
  # TROC DE FRINGUES ET LIVRES
