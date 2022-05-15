@@ -248,9 +248,21 @@ Atelier de sable
 Contact Stéphanie 0643268373
 
 <br/>
+<br/>
+## Samedi 28 mai à 21h
+ 
+ # concert avec " Le retour des Stones"
  <br/>
  <br/>
+ ![c8a335cd04334197335d521a6c23050a24c1c2d149cb2cfa3abe337fa977d5a6](https://user-images.githubusercontent.com/77194514/168475472-c7e5954e-2ecb-4472-a34c-c01dc3738567.jpg)
 
+ Une bande de copains qui se réunissent tous les week-end de l'Ascencion pour reformer leur ancien groupe de Rock parisien, à Beaussac.
+ 
+Une soirée à ne pas manquer!!
+Entrée au chapeau
+<br/>
+<br/>
+<br/>
 ## LE PETIT TOIT D'ÉTOILES
  <br/>
 # aura lieu cette année
