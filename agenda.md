@@ -228,6 +228,7 @@ pour découvrir ou redécouvrir ensemble
 la vie et l’œuvre
 d’un artiste majeur, 
 soirée animée par philippe lecomte 
+<br/>
 entrée libre
       
 ![images](https://user-images.githubusercontent.com/77194514/170283807-1b20f98b-a132-440e-96f0-95c90d1b6722.jpg)
