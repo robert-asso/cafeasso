@@ -223,12 +223,12 @@ Précisions à suivre....
 # Café "histoireS de l'art"
 <br/>
 <br/>
-albertogiacometti
+# Alberto Giacometti
 pour découvrir ou redécouvrir ensemble
 la vie et l’œuvre
-d’un artiste majeur, rendez vous
-au café associatif de léguillac jeudi 23 juin à 20h
-soirée animée par philippe lecomte entrée libre
+d’un artiste majeur, 
+soirée animée par philippe lecomte 
+entrée libre
       
 ![images](https://user-images.githubusercontent.com/77194514/170283807-1b20f98b-a132-440e-96f0-95c90d1b6722.jpg)
 <br/>
