@@ -172,7 +172,10 @@ Entrée au chapeau
 <br/>
 (Lezidefuz est l'un des partenaires)
 <br/>
-[Flyer Violaine.pdf](https://github.com/robert-asso/cafeasso/files/8771823/Flyer.Violaine.pdf)
+![Capture d’écran (245)](https://user-images.githubusercontent.com/77194514/170281652-e17fd2f6-1ab3-4ce5-868a-723aa10b5f44.png)
+<br/>
+<br/>
+![Capture d’écran (251)](https://user-images.githubusercontent.com/77194514/170281778-540075f9-ab95-42bc-8ac4-598f091c7f14.png)
 
 <br/>
 <br/>
