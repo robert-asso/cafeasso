@@ -172,7 +172,7 @@ Entrée au chapeau
 <br/>
 (Lezidefuz est l'un des partenaires)
 <br/>
-![Capture d’écran (251)](https://user-images.githubusercontent.com/77194514/170275305-0f466ef2-e88c-4e0c-82f0-c992627a2fac.png)
+
 <br/>
 <br/>
 <br/>
