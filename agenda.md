@@ -223,7 +223,14 @@ Précisions à suivre....
 # Café des Artistes
 <br/>
 <br/>
-[Affichette Giacomletti.pdf](https://github.com/robert-asso/cafeasso/files/8771761/Affichette.Giacomletti.pdf)
+albertogiacometti
+pour découvrir ou redécouvrir ensemble
+la vie et l’œuvre
+d’un artiste majeur, rendez vous
+au café associatif de léguillac jeudi 23 juin à 20h
+soirée animée par philippe lecomte entrée libre
+      
+![images](https://user-images.githubusercontent.com/77194514/170283807-1b20f98b-a132-440e-96f0-95c90d1b6722.jpg)
 <br/>
 <br/>
 
