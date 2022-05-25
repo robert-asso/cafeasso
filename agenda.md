@@ -178,10 +178,12 @@ Entrée au chapeau
 <br/>
 ## Lundi 13 à 20h ##
 <br/>
-# Projection du film "PAYSANNES"
+# Projection du film "PAYSANNES" Première partie.
 <br/>
 <br/>
-
+![PAYSANNES](https://user-images.githubusercontent.com/77194514/170276890-40122f49-97a4-4c42-befe-e2d98609f5cf.jpg)
+<br/>
+<br/>
 En 1978, trois générations de paysannes du Larzac (1900-1980) racontent ce qui tisse leurs jours et parlent sans détour du mariage, de la famille, de la sexualité, de la religion, de l’éducation, de la guerre, du travail, de l’argent et de toutes les idées nouvelles apparues avec la lutte contre l’extension du camp militaire. C’est vivant, concret, chaleureux et c’est dit avec toute la beauté d’une langue que l’on voit évoluer des plus âgées aux plus jeunes.
 Rappel historique : En 1970, Michel Debré, alors ministre de la Défense, dévoile son projet d’extension d’un camp militaire situé depuis 1902 sur le plateau du Larzac, qu’il entend faire passer de 3 000 à 17 000 hectares. Son secrétaire d’État, justifie cette extension en avançant que le potentiel agricole du territoire est extrêmement faible, et que l’endroit n’est habité que par « quelques paysans qui élèvent vaguement quelques moutons, en vivant plus ou moins moyenâgeusement ». Les paysans ainsi dénigrés, menacés d’expropriation, se révoltent, et sont rapidement soutenus par divers syndicats et associations. De mois en mois, la lutte contre l’extension du camp enfle et fait affluer sur le plateau des milliers de militants pacifistes.
 
@@ -190,12 +192,43 @@ Production : Laura Productions, INA, Serddav Cnrs (1979)
 Distributeur : Les Mutins de Pangée coopérative audiovisuelle et cinématographique de production et d’édition.
 La série est composée de 5 épisodes de 52mn. Quatre seront projetés.
 Participation au frais à la discrétion de chacun.
+<br/>
+<br/>
+<br/>
+## Samedi 18 et dimanche 19 ##
+<br/>
+<br/>
+# Représentation des ateliers théatre
+<br/>
+qui se sont tenus tout au long de l'année au café sous la baguette d'Isis Eymery
+<br/>
+Précisions à suivre....
+<br/>
+<br/>
+## Lundi 20 à 20h ##
+<br/>
+<br/>
+# Projection du film "PAYSANNES" Deuxième partie.
+<br/>
+<br/>
+![PAYSANNES](https://user-images.githubusercontent.com/77194514/170279125-7f1a723c-f031-413b-891b-01a7cb68fc65.jpg)
+<br/>
+<br/>
+## Jeudi 23 à 20h ##
+<br/>
+# Café des Artistes
+<br/>
+<br/>
+[Affichette Giacomletti.pdf](https://github.com/robert-asso/cafeasso/files/8771761/Affichette.Giacomletti.pdf)
+<br/>
+<br/>
 
 ## LE PETIT TOIT D'ÉTOILES
  <br/>
 # aura lieu cette année
  <br/>
 # les samedi 17 et dimanche 18 septembre
+
  
 ********
  
