@@ -220,7 +220,7 @@ Précisions à suivre....
 <br/>
 ## Jeudi 23 à 20h ##
 <br/>
-# Café des Artistes
+# Café "histoireS de l'art"
 <br/>
 <br/>
 albertogiacometti
