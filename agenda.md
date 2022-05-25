@@ -148,7 +148,8 @@ Contact: Toby: 06 04 45 19 39
  <br/>
  <br/>
  ![c8a335cd04334197335d521a6c23050a24c1c2d149cb2cfa3abe337fa977d5a6](https://user-images.githubusercontent.com/77194514/168475472-c7e5954e-2ecb-4472-a34c-c01dc3738567.jpg)
-
+ <br/>
+ <br/>
  Une bande de copains qui se réunissent tous les week-end de l'Ascencion pour reformer leur ancien groupe de Rock parisien, à Beaussac.
  
 Une soirée à ne pas manquer!!
@@ -156,6 +157,40 @@ Entrée au chapeau
 <br/>
 <br/>
 <br/>
+ # Mardi 07 juin à 18h30 ##
+ <br/>
+ # Groupement Forestier Citoyen
+ <br/>
+ <br/>
+ Pour donner suite à la réunion d'information sur les GFC du 17 mai dernierla trentaine de présents a décidé de se retrouver pour créer un GFC local.
+ <br/>
+<br/>
+<br/>
+## Samedi 11 et dimanche 12 Juin ##
+<br/>
+# Festival de la Belle
+<br/>
+(Lezidefuz est l'un des partenaires)
+<br/>
+![Capture d’écran (251)](https://user-images.githubusercontent.com/77194514/170275305-0f466ef2-e88c-4e0c-82f0-c992627a2fac.png)
+<br/>
+<br/>
+<br/>
+## Lundi 13 à 20h ##
+<br/>
+# Projection du film "PAYSANNES"
+<br/>
+<br/>
+
+En 1978, trois générations de paysannes du Larzac (1900-1980) racontent ce qui tisse leurs jours et parlent sans détour du mariage, de la famille, de la sexualité, de la religion, de l’éducation, de la guerre, du travail, de l’argent et de toutes les idées nouvelles apparues avec la lutte contre l’extension du camp militaire. C’est vivant, concret, chaleureux et c’est dit avec toute la beauté d’une langue que l’on voit évoluer des plus âgées aux plus jeunes.
+Rappel historique : En 1970, Michel Debré, alors ministre de la Défense, dévoile son projet d’extension d’un camp militaire situé depuis 1902 sur le plateau du Larzac, qu’il entend faire passer de 3 000 à 17 000 hectares. Son secrétaire d’État, justifie cette extension en avançant que le potentiel agricole du territoire est extrêmement faible, et que l’endroit n’est habité que par « quelques paysans qui élèvent vaguement quelques moutons, en vivant plus ou moins moyenâgeusement ». Les paysans ainsi dénigrés, menacés d’expropriation, se révoltent, et sont rapidement soutenus par divers syndicats et associations. De mois en mois, la lutte contre l’extension du camp enfle et fait affluer sur le plateau des milliers de militants pacifistes.
+
+Réalisation : Gérard Guérin sélectionné à Cannes en 1973 pour Lo Païs.
+Production : Laura Productions, INA, Serddav Cnrs (1979)
+Distributeur : Les Mutins de Pangée coopérative audiovisuelle et cinématographique de production et d’édition.
+La série est composée de 5 épisodes de 52mn. Quatre seront projetés.
+Participation au frais à la discrétion de chacun.
+
 ## LE PETIT TOIT D'ÉTOILES
  <br/>
 # aura lieu cette année
