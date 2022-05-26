@@ -157,7 +157,7 @@ Entrée au chapeau
 <br/>
 <br/>
 <br/>
- ## Mardi 07 juin à 18h30 ##
+ ## Mardi 07 juin à 18h30 
  <br/>
  # Groupement Forestier Citoyen
  <br/>
@@ -166,7 +166,7 @@ Entrée au chapeau
  <br/>
 <br/>
 <br/>
-## Samedi 11 et dimanche 12 Juin ##
+## Samedi 11 et dimanche 12 Juin 
 <br/>
 # Festival de la Belle
 <br/>
@@ -180,7 +180,7 @@ Entrée au chapeau
 <br/>
 <br/>
 <br/>
-## Lundi 13 Juin à 20h ##
+## Lundi 13 Juin à 20h 
 <br/>
 # Projection du film "PAYSANNES" Première partie.
 <br/>
@@ -199,7 +199,7 @@ Participation au frais à la discrétion de chacun.
 <br/>
 <br/>
 <br/>
-## Samedi 18 et dimanche 19 Juin ##
+## Samedi 18 et dimanche 19 Juin 
 <br/>
 <br/>
 # Représentations des ateliers théatre
@@ -211,7 +211,7 @@ Horaires à préciser !
 
 <br/>
 <br/>
-## Lundi 20 Juin à 20h ##
+## Lundi 20 Juin à 20h 
 <br/>
 <br/>
 # Projection du film "PAYSANNES" Deuxième partie.
@@ -220,7 +220,7 @@ Horaires à préciser !
 ![PAYSANNES](https://user-images.githubusercontent.com/77194514/170279125-7f1a723c-f031-413b-891b-01a7cb68fc65.jpg)
 <br/>
 <br/>
-## Jeudi 23 Juin  à 20h ##
+## Jeudi 23 Juin  à 20h 
 <br/>
 # Café "histoireS de l'art"
 <br/>
