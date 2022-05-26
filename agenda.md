@@ -202,7 +202,7 @@ Participation au frais à la discrétion de chacun.
 ## Samedi 18 et dimanche 19 ##
 <br/>
 <br/>
-# Représentation des ateliers théatre
+# Représentations des ateliers théatre
 <br/>
 Sous la baguette d'Isis Eymery et  en extérieur si le temps le permet:
 <br/>
