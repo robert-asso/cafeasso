@@ -162,7 +162,7 @@ Entrée au chapeau
  # Groupement Forestier Citoyen
  <br/>
  <br/>
- Pour donner suite à la réunion d'information sur les GFC du 17 mai dernierla trentaine de présents a décidé de se retrouver pour créer un GFC local.
+ Pour donner suite à la réunion d'information sur les GFC du 17 mai dernier la trentaine de présents a décidé de se retrouver pour créer un GFC local.
  <br/>
 <br/>
 <br/>
