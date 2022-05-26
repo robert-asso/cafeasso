@@ -204,9 +204,11 @@ Participation au frais à la discrétion de chacun.
 <br/>
 # Représentation des ateliers théatre
 <br/>
-qui se sont tenus tout au long de l'année au café sous la baguette d'Isis Eymery
+Sous la baguette d'Isis Eymery et  en extérieur si le temps le permet:
 <br/>
-Précisions à suivre....
+Peter Pan, d'après James Matthew Barry, 
+Horaires à préciser !
+
 <br/>
 <br/>
 ## Lundi 20 à 20h ##
