@@ -145,23 +145,8 @@ Contact: Toby: 06 04 45 19 39
 <br/>
 <br/>
 
-<br/>
-<br/>
-## Samedi 28 mai à 21h
- 
- # concert avec " Le retour des Stones"
- <br/>
- <br/>
- ![c8a335cd04334197335d521a6c23050a24c1c2d149cb2cfa3abe337fa977d5a6](https://user-images.githubusercontent.com/77194514/168475472-c7e5954e-2ecb-4472-a34c-c01dc3738567.jpg)
- <br/>
- <br/>
- Une bande de copains qui se réunissent tous les week-end de l'Ascencion pour reformer leur ancien groupe de Rock parisien, à Beaussac.
- 
-Une soirée à ne pas manquer!!
-Entrée au chapeau
-<br/>
-<br/>
-<br/>
+
+
  ## Mardi 07 juin à 18h30 
  <br/>
  # Groupement Forestier Citoyen
