@@ -161,7 +161,6 @@ Contact: Toby: 06 04 45 19 39
 # Festival de la Belle
 <br/>
 
-<br/>
 ![Capture d’écran (245)](https://user-images.githubusercontent.com/77194514/170281652-e17fd2f6-1ab3-4ce5-868a-723aa10b5f44.png)
 <br/>
 <br/>
@@ -170,6 +169,8 @@ Contact: Toby: 06 04 45 19 39
 <br/>
 <br/>
 Lezidefuz est l'un des partenaires de ce festival
+<br/>
+<br/>
 <br/>
 ## Lundi 13 Juin à 20h 
 <br/>
@@ -192,7 +193,7 @@ Participation au frais à la discrétion de chacun.
 <br/>
 ## Samedi 18 juin à 20h et dimanche 19 Juin à 17h
 <br/>
-<br/>
+
 # Représentations de l'ateliers théatre des ados
 <br/>
 Sous la baguette d'Isis Eymery et  en extérieur si le temps le permet:
@@ -200,8 +201,9 @@ Sous la baguette d'Isis Eymery et  en extérieur si le temps le permet:
 Peter Pan, d'après James Matthew Barry, 
 <br/>
 <br/>
-## Lundi 20 Juin à 20h 
 <br/>
+<br/>
+## Lundi 20 Juin à 20h 
 <br/>
 # Projection du film "PAYSANNES" Deuxième partie.
 <br/>
@@ -210,6 +212,8 @@ bnbn
 ![PAYSANNES](https://user-images.githubusercontent.com/77194514/170279125-7f1a723c-f031-413b-891b-01a7cb68fc65.jpg)
 <br/>
 <br/>
+<br/>
+
 ## Jeudi 23 Juin  à 20h 
 <br/>
 # Café "histoireS de l'art"
@@ -230,10 +234,10 @@ entrée libre
 <br/>
 <br/>
 # Réunion de préparation pour le  “Petit Toit d'Étoiles”
-du 17 et 18 septembre
- 
-invitation à tous ceux et celles qui voudraient bénévoler pendant ces 2 jours de spectacles de rue.
- 
+
+ invitation à tous ceux et celles qui voudraient bénévoler pendant ces 2 jours de spectacles de rue.
+ <br/>
+<br/>
 
 ## LE PETIT TOIT D'ÉTOILES
  <br/>
