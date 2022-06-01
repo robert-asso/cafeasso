@@ -57,7 +57,7 @@ Animé par Isis Eymery : 06 75 60 85 11.
 <br/>
 2ème samedi de chaque mois de 14h30-16h30  
  <br/> 
-Commence le 9 octobre, tarif en conscience 10-20€ la scéance.  
+Tarif en conscience 10-20€ la scéance.  
 <br/>
 Animé par Violaine Debien : 06 64 17 06 02  
 <br/>
@@ -66,7 +66,7 @@ Animé par Violaine Debien : 06 64 17 06 02
 <br/>
 1er et 3ème jeudi de chaque mois, 19h30-20h30
 <br/>  
-commence le 7 octobre, tarif en conscience 7-12€ la scéance.
+Tarif en conscience 7-12€ la scéance.
 <br/> 
 Animé par Violaine Debien : 06 64 17 06 02
 <br/>     
@@ -74,7 +74,12 @@ Animé par Violaine Debien : 06 64 17 06 02
 
 ## Scène ouverte 
 le 1er vendredi de chaque mois.
-** à 21h ** à partir du 3 juin!
+<br/>     
+<br/> 
+## Attention heure d'été: 21h
+<br/>     
+# l'heure de fermeture reste à 01h, dernier délai
+<br/>     
 Venez participer avec votre instrument , votre voix, votre écoute...
 <br/> 
 <br/>
@@ -170,7 +175,7 @@ Entrée au chapeau
 <br/>
 # Festival de la Belle
 <br/>
-(Lezidefuz est l'un des partenaires)
+
 <br/>
 ![Capture d’écran (245)](https://user-images.githubusercontent.com/77194514/170281652-e17fd2f6-1ab3-4ce5-868a-723aa10b5f44.png)
 <br/>
@@ -179,6 +184,7 @@ Entrée au chapeau
 
 <br/>
 <br/>
+Lezidefuz est l'un des partenaires de ce festival
 <br/>
 ## Lundi 13 Juin à 20h 
 <br/>
@@ -199,16 +205,14 @@ Participation au frais à la discrétion de chacun.
 <br/>
 <br/>
 <br/>
-## Samedi 18 et dimanche 19 Juin 
+## Samedi 18 juin à 20h et dimanche 19 Juin à 17h
 <br/>
 <br/>
-# Représentations des ateliers théatre
+# Représentations de l'ateliers théatre des ados
 <br/>
 Sous la baguette d'Isis Eymery et  en extérieur si le temps le permet:
 <br/>
 Peter Pan, d'après James Matthew Barry, 
-Horaires à préciser !
-
 <br/>
 <br/>
 ## Lundi 20 Juin à 20h 
@@ -217,6 +221,7 @@ Horaires à préciser !
 # Projection du film "PAYSANNES" Deuxième partie.
 <br/>
 <br/>
+bnbn
 ![PAYSANNES](https://user-images.githubusercontent.com/77194514/170279125-7f1a723c-f031-413b-891b-01a7cb68fc65.jpg)
 <br/>
 <br/>
@@ -236,6 +241,14 @@ entrée libre
 ![images](https://user-images.githubusercontent.com/77194514/170283807-1b20f98b-a132-440e-96f0-95c90d1b6722.jpg)
 <br/>
 <br/>
+## Vendredi 24 juin à 18h30
+<br/>
+<br/>
+# Réunion de préparation pour le  “Petit Toit d'Étoiles”
+du 17 et 18 septembre
+ 
+invitation à tous ceux et celles qui voudraient bénévoler pendant ces 2 jours de spectacles de rue.
+ 
 
 ## LE PETIT TOIT D'ÉTOILES
  <br/>
