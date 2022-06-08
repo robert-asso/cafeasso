@@ -76,7 +76,7 @@ Animé par Violaine Debien : 06 64 17 06 02
 le 1er vendredi de chaque mois.
 <br/>     
 <br/> 
-## Attention heure d'été: 21h
+## Attention heure d'été: 21h!
 <br/>     
 # l'heure de fermeture reste à 01h, dernier délai
 <br/>     
