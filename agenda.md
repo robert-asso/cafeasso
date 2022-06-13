@@ -208,7 +208,6 @@ Peter Pan, d'après James Matthew Barry,
 # Projection du film "PAYSANNES" Deuxième partie.
 <br/>
 <br/>
-bnbn
 ![PAYSANNES](https://user-images.githubusercontent.com/77194514/170279125-7f1a723c-f031-413b-891b-01a7cb68fc65.jpg)
 <br/>
 <br/>
