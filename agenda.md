@@ -214,6 +214,7 @@ Sous la baguette d'Isis Eymery et  en extérieur si le temps le permet:
 Peter Pan, d'après James Matthew Barry, 
 <br/>
 <br/>
+![bca0335afd0fc4b342afd48c0c5e482fc3b4f9f7f375fb156bac2a7e565578ed](https://user-images.githubusercontent.com/77194514/173605434-05770727-18f2-4ec4-975a-28bdb014315c.jpg)
 
 <br/>
 <br/>
