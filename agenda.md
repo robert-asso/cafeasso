@@ -194,7 +194,7 @@ Participation au frais à la discrétion de chacun.
 ## Samedi 18 juin à 20h et dimanche 19 Juin à 17h
 <br/>
 
-# Représentations de l'ateliers théatre des ados
+# Représentations de l'atelier théatre des ados
 <br/>
 Sous la baguette d'Isis Eymery et  en extérieur si le temps le permet:
 <br/>
