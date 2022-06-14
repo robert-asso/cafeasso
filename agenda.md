@@ -18,7 +18,7 @@ fin exemple -->
 ## Pour vous tenir au courant des annulations et des évenements de dernière minute ##
 <br/>
 
-## Visitez régulièrement le site ! ##
+## Visitez régulièrement le site ! 
 <br/>
 I/ La prog'permanente
 <br/>
@@ -243,7 +243,16 @@ entrée libre.
 ![images](https://user-images.githubusercontent.com/77194514/170283807-1b20f98b-a132-440e-96f0-95c90d1b6722.jpg)
 <br/>
 <br/>
-## Vendredi 24 juin à 18h30
+## Vendredi 24 juin 18h30
+
+# L'association "Paussac-Verticale-Escalade"
+
+tiendra son Assemblée Générale au Café
+ouvert à toutes et tous
+<br/>
+<br/>
+<br/>
+## Jeudi 30 juin 18h30
 <br/>
 <br/>
 # Réunion de préparation pour le  “Petit Toit d'Étoiles”
