@@ -190,7 +190,20 @@ La série est composée de 5 épisodes de 52mn. Quatre seront projetés.
 Participation au frais à la discrétion de chacun.
 <br/>
 <br/>
+ 
+## vendredi 17 juin 20h
 <br/>
+<br/>
+# Café Collapso-des-croissants
+ 
+Il y a maintenant plus de trois ans qu'a été lancé un Café Collapso-des croissants 🥐 à Léguillac,
+censé initier un groupe de personnes interpellées par les grands défis de ce monde qui nous emmène droit dans un mur...
+Après de nombreux discussions et débats autour de thèmes aussi variés que l'alimentation, l'eau, l'énergie, la santé et la sécurité entre autres. Et quelques ateliers et visites sur le terrain par des mises en pratique de certain(e)s...
+Bilan et projets...
+<br/>
+<br/>
+<br/>
+ 
 ## Samedi 18 juin à 20h et dimanche 19 Juin à 17h
 <br/>
 
@@ -201,6 +214,7 @@ Sous la baguette d'Isis Eymery et  en extérieur si le temps le permet:
 Peter Pan, d'après James Matthew Barry, 
 <br/>
 <br/>
+
 <br/>
 <br/>
 ## Lundi 20 Juin à 20h 
