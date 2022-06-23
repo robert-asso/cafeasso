@@ -253,6 +253,22 @@ ouvert à toutes et tous
 <br/>
 <br/>
 <br/>
+## Samedi 25 juin 20h30 et dimanche 26 juin 18h
+<br/>
+Venez applaudir L'atelier théatre adulte  de l'asso "Paréïdolie" (qui répète au café) dans:
+<br/>
+# Le songe d'une nuit d'été " d'aprés W. Shakespeare , adaptation et mise en scène  d'Isis Eymery
+<br/>
+# Attention: Les séances auront lieu à  "La Verrerie 24310 Paussac et st Vivien"
+<br/>
+En exterieur si le temps le permet , sinon, sale des fêtes de Bourdeilles
+<br/>
+info et réservations : 0675608511
+<br/>
+Entrée libre , participation au chapeau
+<br/>
+<br/>
+<br/>
 ## Jeudi 30 juin 18h30
 <br/>
 <br/>
