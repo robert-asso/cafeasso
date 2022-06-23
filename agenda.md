@@ -261,7 +261,7 @@ Venez applaudir L'atelier théatre adulte  de l'asso "Paréïdolie" (qui répèt
 <br/>
 # Attention: Les séances auront lieu à  "La Verrerie 24310 Paussac et st Vivien"
 <br/>
-En exterieur si le temps le permet , sinon, sale des fêtes de Bourdeilles
+En exterieur si le temps le permet , sinon, salle des fêtes de Bourdeilles
 <br/>
 info et réservations : 0675608511
 <br/>
