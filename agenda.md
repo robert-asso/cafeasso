@@ -105,14 +105,6 @@ Chasdun pòrta son minjat, n'um boira tot aquò, e se parla occitan!
 Contact: Luc / 06 26 47 43 94
 <br/>
 <br/>
-  
-
-## Café Décroissant 
-<br/>
-3ème vendredi de chaque mois à 19h30
-
-<br/>
-Contact: thdharveng@yahoo.fr
 
 ## Café Tricot 
 
