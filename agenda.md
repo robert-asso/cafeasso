@@ -166,9 +166,13 @@ renseignements Luc: 06 26 47 43 94
 ![affiche-quete-du-rale-2022](https://user-images.githubusercontent.com/77194514/177800110-38e4260c-de7b-43ab-a5c8-83f54a78b4fe.jpg)
 
  <br/>
+  <br/>
+ ## Vendredi 12 août å 21h
+ # Concert "Mestizaje del viaje"
+<br/>
  <br/>
+ Duo Chili-Argentine
  
-
 ## Dimanche 04 Septembre 14h30
  <br/>
 
@@ -211,16 +215,46 @@ Cie La Dépliante
 Starsky est un clown acrobate électrique à la fois fier et pudique, noble et prolétaire. Il travaille chez Starsky Minute, une entreprise de livraison de colis. Sa mission ? Vous livrer un colis. Malheureusement, l’efficacité… c’est pas trop son truc.
  <br/>
  <br/>
-  ![STARSKY](https://user-images.githubusercontent.com/77194514/177808217-a0712717-8de9-437c-bdc6-41862a6bd128.JPG)
+  ![Starsky Minu 2](https://user-images.githubusercontent.com/77194514/177811401-c01e1b79-093e-46ce-a8ed-a4eebb526175.jpeg)
+
+ <br/>
+ <br/>
+   
   
+## SAMBA GARAGE
   <br/>
  <br/>
-    
-   
+Samba Garage propose un spectacle où se mêlent plusieurs couleurs musicales, de la traditionnelle samba carioca de bateria à des tourneries rap funk ou afro, en passant par des samba reggae et autres afoxè, maracatu et rumba.
+Samba Garage propose un spectacle où se mêlent plusieurs couleurs musicales, de la traditionnelle samba carioca de bateria à des tourneries rap funk ou afro, en passant par des samba reggae et autres afoxè, maracatu et rumba. 
+  <br/>
+ 
+![SambaGarage](https://user-images.githubusercontent.com/77194514/177810018-2086f359-de61-47bf-9b9d-9dd880cb3858.jpg)
+  <br/>
+ <br/>
+ ## LES BALLES POPULAIRES
+  <br/>
+  <br/> 
+Cie Encore qui ? (Gorki)
+Les balles populaires est un solo de jonglerie drôle et poétique.
+Il repose avant tout sur le personnage de Gorky,
+vagabond attachant et sensible qui pose sa valise le temps de raconter son histoire à travers son spectacle.
+ <br/>
 
+![Les balles populaires portrait crédit Patrick Loyat](https://user-images.githubusercontent.com/77194514/177810489-a715669a-1dfe-450b-b7e6-d4dc5acfe6ef.jpg)
+ <br/>
+  <br/> 
+## Venez rejoindre la sympathique équipe
+qui s'occupera de nourrir les artistes et les bénévoles pendant ces deux jours,
+en vous faisant connaitre rapidement sur le mail du café en vue d'une réunion de préparation cuisine 
+(plus on est nombreux.ses , moins y'a d'boulot)
+lezidefuz@gmail.com
 
+Si la cuisine c'est pas votre truc , mais que vous vouliez participer,
+faites vous connaitre qu'on puisse vous contacter.
+lezidefuz@gmail.com
 
-
+# Une" réunion générale"  est prévue le mardi 13.septembre
+à 18h30 au Café asso.
 
 
  
