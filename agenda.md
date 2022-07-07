@@ -168,11 +168,36 @@ renseignements Luc: 06 26 47 43 94
  <br/>
   <br/>
  ## Vendredi 12 août å 21h
+  <br/>
  # Concert "Mestizaje del viaje"
 <br/>
- <br/>
  Duo Chili-Argentine
- 
+  <br/>
+  ![metissqgecleardot](https://user-images.githubusercontent.com/77194514/177816924-44bad580-b80f-4a5b-8c0b-37916d108185.gif)
+ <br/>
+  <br/>
+  ## Mercredi 17 août à 18h30
+   <br/>
+# Rèunion du Groupement Forestier Citoyen Ecologique
+ <br/>
+  <br/> 
+  ## Vendredi 19 août à 20h
+   <br/>
+ # Cafè collapso-des croissants
+  <br/>
+ " Une alimentation vraiment locale est-elle possible ?"
+ Avec Christophe Villevégoux
+ <br/>
+  <br/>
+ ## Samedi 20 août à 21h
+  <br/>
+ # "Cynthia premières neiges"
+  <br/>
+ Cie Lilo Théatre de et avec Emilie Dussarat
+ Mise en scène Emilie Esquerré et Laurent Dabadie
+ THEATRE TOUT PUBLIC
+  <br/>
+  <br/>
 ## Dimanche 04 Septembre 14h30
  <br/>
 
