@@ -173,7 +173,8 @@ renseignements Luc: 06 26 47 43 94
 <br/>
  Duo Chili-Argentine
   <br/>
-  ![metissqgecleardot](https://user-images.githubusercontent.com/77194514/177816924-44bad580-b80f-4a5b-8c0b-37916d108185.gif)
+  ![IMG-20220424-WA0003](https://user-images.githubusercontent.com/77194514/177822596-3d8e7577-bc43-430d-9910-08548b5fea09.jpg)
+
  <br/>
   <br/>
   ## Mercredi 17 août à 18h30
@@ -193,8 +194,10 @@ renseignements Luc: 06 26 47 43 94
   <br/>
  # "Cynthia premières neiges"
   <br/>
- Cie Lilo Théatre de et avec Emilie Dussarat
- Mise en scène Emilie Esquerré et Laurent Dabadie
+ Cie Lilo Théatre,
+ de et avec Emilie Dussarat <br/>; Mise en scène Emilie Esquerré et Laurent Dabadie
+  <br/>
+  
  THEATRE TOUT PUBLIC
   <br/>
   <br/>
