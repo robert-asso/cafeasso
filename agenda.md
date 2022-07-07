@@ -133,152 +133,101 @@ Contact: Toby: 06 04 45 19 39
 ## II/ LA PROG AU JOUR LE JOUR
 <br/>
 <br/>
-# Lors de votre venue profitez de la belle (et lumineuse) expo des oeuvres de Léo et Stephanie
-<br/>
-<br/>
 
 
-
- ## Mardi 07 juin à 18h30 
+## Le mercredi 20 juillet à 18h30
  <br/>
- # Groupement Forestier Citoyen
+ # Réunion du groupement forestier citoyen et écologique
  <br/>
  <br/>
- Pour donner suite à la réunion d'information sur les GFC du 17 mai dernier, la trentaine de présents ce soir là a décidé de se retrouver pour créer un GFC local.
+
+## Samedi 30 juillet à 21h
  <br/>
-<br/>
-<br/>
-## Samedi 11 et dimanche 12 Juin 
-<br/>
-# Festival de la Belle
-<br/>
-
-![Capture d’écran (245)](https://user-images.githubusercontent.com/77194514/170281652-e17fd2f6-1ab3-4ce5-868a-723aa10b5f44.png)
-<br/>
-<br/>
-![Capture d’écran (251)](https://user-images.githubusercontent.com/77194514/170281778-540075f9-ab95-42bc-8ac4-598f091c7f14.png)
-
-<br/>
-<br/>
-Lezidefuz est l'un des partenaires de ce festival
-<br/>
-<br/>
-<br/>
-## Lundi 13 Juin à 20h 
-<br/>
-# Projection du film "PAYSANNES" Première partie.
-<br/>
-<br/>
-![PAYSANNES](https://user-images.githubusercontent.com/77194514/170276890-40122f49-97a4-4c42-befe-e2d98609f5cf.jpg)
-<br/>
-<br/>
-En 1978, trois générations de paysannes du Larzac (1900-1980) racontent ce qui tisse leurs jours et parlent sans détour du mariage, de la famille, de la sexualité, de la religion, de l’éducation, de la guerre, du travail, de l’argent et de toutes les idées nouvelles apparues avec la lutte contre l’extension du camp militaire. C’est vivant, concret, chaleureux et c’est dit avec toute la beauté d’une langue que l’on voit évoluer des plus âgées aux plus jeunes.
-Rappel historique : En 1970, Michel Debré, alors ministre de la Défense, dévoile son projet d’extension d’un camp militaire situé depuis 1902 sur le plateau du Larzac, qu’il entend faire passer de 3 000 à 17 000 hectares. Son secrétaire d’État, justifie cette extension en avançant que le potentiel agricole du territoire est extrêmement faible, et que l’endroit n’est habité que par « quelques paysans qui élèvent vaguement quelques moutons, en vivant plus ou moins moyenâgeusement ». Les paysans ainsi dénigrés, menacés d’expropriation, se révoltent, et sont rapidement soutenus par divers syndicats et associations. De mois en mois, la lutte contre l’extension du camp enfle et fait affluer sur le plateau des milliers de militants pacifistes.
-
-Réalisation : Gérard Guérin sélectionné à Cannes en 1973 pour Lo Païs.
-Production : Laura Productions, INA, Serddav Cnrs (1979)
-Distributeur : Les Mutins de Pangée coopérative audiovisuelle et cinématographique de production et d’édition.
-La série est composée de 5 épisodes de 52mn. Quatre seront projetés.
-Participation au frais à la discrétion de chacun.
-<br/>
-<br/>
+# "La Quête du Râle"
+ <br/>
  
-## vendredi 17 juin 20h
-<br/>
-<br/>
-# Café Collapso-des-croissants
+"Ce spectacle est né de la rencontre entre un didgeridoo (instrument de musique aborigène d'Australie) et un clown ( moi-même)...
+
+Il nous emmène à l'époque de la préhistoire et propulse un homme préhistorique dans le monde d’aujourd’hui. Comme dans toute aventure nous avons besoin de lâcher nos repères pour en découvrir d'autres.
+Le personnage Paaahaaaa va donc partir en quête pour découvrir qui nous sommes, comment nous communiquons, quels sont nos rites.
+
+Il va braver le ridicule avec panache pour se faire aimer comme il est...
  
-Il y a maintenant plus de trois ans qu'a été lancé un Café Collapso-des croissants 🥐 à Léguillac,
-censé initier un groupe de personnes interpellées par les grands défis de ce monde qui nous emmène droit dans un mur...
-Après de nombreux discussions et débats autour de thèmes aussi variés que l'alimentation, l'eau, l'énergie, la santé et la sécurité entre autres. Et quelques ateliers et visites sur le terrain par des mises en pratique de certain(e)s...
-Bilan et projets...
-<br/>
-<br/>
-<br/>
- 
-## Samedi 18 juin à 20h et dimanche 19 Juin à 17h
-<br/>
+... Existe-t-il un lien entre les anciennes danses tribales préhistoriques, aborigènes ou indiennes et la musique d'aujourd'hui?
+De toute évidence dans ce spectacle il y en a un... Après avoir découvert le didgeridoo, Paaahaaaa découvre le beat box, puis la drum and bass..."
 
-# Représentations de l'atelier théatre des ados
-<br/>
-Sous la baguette d'Isis Eymery et  en extérieur si le temps le permet:
-<br/>
-Peter Pan, d'après James Matthew Barry, 
-<br/>
-<br/>
-![bca0335afd0fc4b342afd48c0c5e482fc3b4f9f7f375fb156bac2a7e565578ed](https://user-images.githubusercontent.com/77194514/173605434-05770727-18f2-4ec4-975a-28bdb014315c.jpg)
+Spectacle tout public
+Clown, musique, jonglerie
 
-<br/>
-<br/>
-## Lundi 20 Juin à 20h 
-<br/>
-# Projection du film "PAYSANNES" Deuxième partie.
-<br/>
-<br/>
-![PAYSANNES](https://user-images.githubusercontent.com/77194514/170279125-7f1a723c-f031-413b-891b-01a7cb68fc65.jpg)
-<br/>
-<br/>
-<br/>
-
-## Jeudi 23 Juin  à 20h 
-<br/>
-# Café "histoireS de l'art"
-<br/>
-<br/>
-# Alberto Giacometti
-pour découvrir ou redécouvrir ensemble
-la vie et l’œuvre
-d’un artiste majeur, 
-soirée animée par philippe lecomte 
-<br/>
-entrée libre.
-      
-![images](https://user-images.githubusercontent.com/77194514/170283807-1b20f98b-a132-440e-96f0-95c90d1b6722.jpg)
-<br/>
-<br/>
-## Vendredi 24 juin 18h30
-
-# L'association "Paussac-Verticale-Escalade"
-
-tiendra son Assemblée Générale au Café
-ouvert à toutes et tous
-<br/>
-<br/>
-<br/>
-## Samedi 25 juin 20h30 et dimanche 26 juin 18h
-<br/>
-Venez applaudir L'atelier théatre adulte  de l'asso "Paréïdolie" (qui répète au café) dans:
-<br/>
-# Le songe d'une nuit d'été " d'aprés W. Shakespeare , adaptation et mise en scène  d'Isis Eymery
-<br/>
-# Attention: Les séances auront lieu à  "La Verrerie 24310 Paussac et st Vivien"
-<br/>
-En exterieur si le temps le permet , sinon, salle des fêtes de Bourdeilles
-<br/>
-info et réservations : 0675608511
-<br/>
-Entrée libre , participation au chapeau
-<br/>
-<br/>
-<br/>
-## Jeudi 30 juin 18h30
-<br/>
-<br/>
-# Réunion de préparation pour le  “Petit Toit d'Étoiles”
-
- invitation à tous ceux et celles qui voudraient bénévoler pendant ces 2 jours de spectacles de rue.
+Entrée au chapeau
+renseignements Luc: 06 26 47 43 94
  <br/>
-<br/>
+ <br/>
+![affiche-quete-du-rale-2022](https://user-images.githubusercontent.com/77194514/177800110-38e4260c-de7b-43ab-a5c8-83f54a78b4fe.jpg)
 
+ <br/>
+ <br/>
+ 
+
+## Dimanche 04 Septembre 14h30
+ <br/>
+
+# Assemblée Générale de L'association LEZIDEFUZ ,
+Retenez d'ores et déjà  cette date
+pour venir partager ce moment important pour toute association.
+
+ <br/>
+  <br/>
+
+## Samedi 17 et dimanche 18 septembre
+ <br/>
+  <br/>
+## LE PETIT TOIT d'ETOILES
+ <br/>
+  <br/>
+... le retour, enfin!
+
+ 
+Voilà un avant goût de ce que nous vous proposerons:
+ <br/>
+ <br/>
+
+# CONCERT "SUKH MAHAL"
+ <br/>
+    
+La musique propose une route des Indes très personnelle, remontée en bateau pirate de la Garonne au Gange en passant par le Danube, inspirée des musique traditionnelle des Balkans et du Rajasthan, du rock, hip-hop, du jazz, des Beastie Boys, d’Asian Dub…
+ <br/>
+    
+![Sukhmahal - Crédit Caroline Pioger](https://user-images.githubusercontent.com/77194514/177803871-7ff62f1a-3dae-46ca-92ba-1f48e45755f3.JPG)
+
+ <br/>
+  <br/>
+
+## "STARSKY MINUTE"
+  <br/>
+    <br/>
+Cie La Dépliante
+  <br/>
+Starsky est un clown acrobate électrique à la fois fier et pudique, noble et prolétaire. Il travaille chez Starsky Minute, une entreprise de livraison de colis. Sa mission ? Vous livrer un colis. Malheureusement, l’efficacité… c’est pas trop son truc.
+ <br/>
+    
+ [Starsky Minute La Depliante Iza Pauly copyright - Copie](https://user-images.githubusercontent.com/77194514/177804907-49e85306-e973-4e6f-ac99-0a8e17359cba.JPG)
+ <br/>
+    <br/>
+    
+   
+
+
+
+
+
+
+ 
 ## LE PETIT TOIT D'ÉTOILES
  <br/>
 # aura lieu cette année
  <br/>
 # les samedi 17 et dimanche 18 septembre
-
- 
-********
- 
  
  
 
