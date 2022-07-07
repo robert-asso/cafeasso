@@ -210,10 +210,11 @@ Cie La Dépliante
   <br/>
 Starsky est un clown acrobate électrique à la fois fier et pudique, noble et prolétaire. Il travaille chez Starsky Minute, une entreprise de livraison de colis. Sa mission ? Vous livrer un colis. Malheureusement, l’efficacité… c’est pas trop son truc.
  <br/>
-    
- [Starsky Minute La Depliante Iza Pauly copyright - Copie](https://user-images.githubusercontent.com/77194514/177804907-49e85306-e973-4e6f-ac99-0a8e17359cba.JPG)
  <br/>
-    <br/>
+  ![STARSKY](https://user-images.githubusercontent.com/77194514/177808217-a0712717-8de9-437c-bdc6-41862a6bd128.JPG)
+  
+  <br/>
+ <br/>
     
    
 
@@ -223,11 +224,7 @@ Starsky est un clown acrobate électrique à la fois fier et pudique, noble et p
 
 
  
-## LE PETIT TOIT D'ÉTOILES
- <br/>
-# aura lieu cette année
- <br/>
-# les samedi 17 et dimanche 18 septembre
+
  
  
 
