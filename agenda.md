@@ -177,6 +177,8 @@ renseignements Luc: 06 26 47 43 94
 
  <br/>
   <br/>
+  ![IMG-20220424-WA0004](https://user-images.githubusercontent.com/77194514/177823307-6dc356eb-9fdb-4f48-b917-701cf8c958c4.jpg)
+
   ## Mercredi 17 août à 18h30
    <br/>
 # Rèunion du Groupement Forestier Citoyen Ecologique
