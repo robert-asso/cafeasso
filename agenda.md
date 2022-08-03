@@ -40,19 +40,6 @@ Lors de ces soirées le bar est ouvert.
 
 <br/>  
 <br/> 
-
-## Atelier Théatre 
-
-chaque mercredi après-midi.  
-<br/> 
-
-* Ados 17h-19h
-* Adultes 20h-23h  
-<br/> 
-
-Animé par Isis Eymery : 06 75 60 85 11.    
-<br/>
-<br/>
 ## Danse libre 
 <br/>
 2ème samedi de chaque mois de 14h30-16h30  
@@ -139,7 +126,11 @@ Contact: Toby: 06 04 45 19 39
 <br/>
  duo Chili-Argentine
   <br/>
+  Entrée au chapeau.
     <br/>
+    Renseignement Isis: 06 75 60 85 11
+      <br/>
+  <br/>
   ![IMG-20220424-WA0003](https://user-images.githubusercontent.com/77194514/177822596-3d8e7577-bc43-430d-9910-08548b5fea09.jpg)
 <br/>
   <br/>
@@ -192,16 +183,16 @@ renseignements Jean-Luc 06 80 28 00 57
 ## Lundi 22 août 18h30
  
  
-Réunion de préparation
-pour
-"Le Petit Toit d'Etoiles"
+# Réunion de préparation pour
+  <br/
+# "Le Petit Toit d'Etoiles"
    <br/>
   <br/>
  Vous voudriez bien être bénévole, mais vous ne serez pas à la réunion...
 Venez rejoindre la sympathique équipe
 qui s'occupera de nourrir les artistes et les bénévoles
 pendant ces deux jours,
-en vous faisant connaitre rapidement sur le mail du café en vue d'une réunion de préparation cuisine
+en vous## faisant connaitre rapidement sur le mail du café en vue d'une réunion de préparation cuisine
 (plus on est nombreux.ses , moins y'a d'boulot)
  lezidefuz@gmail.com
 Si la cuisine c'est pas votre truc , mais que vous vouliez participer,
@@ -234,7 +225,7 @@ pour venir partager ce moment important pour toute association.
 Voilà un avant goût de ce que nous vous proposerons:
  <br/>
  <br/>
-## L'atelier thêatre de l'association Parèïdolie pr
+## L'atelier thêatre de l'association Parèïdolie présente
   <br/>
 # "Le songe d'une nuit d'été " d'après W. Shakespeare.
   <br/>
