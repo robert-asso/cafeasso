@@ -184,7 +184,7 @@ renseignements Jean-Luc 06 80 28 00 57
  
  
 # Réunion de préparation pour
-  <br/
+  
 # "Le Petit Toit d'Etoiles"
    <br/>
   <br/>
@@ -233,7 +233,7 @@ Voilà un avant goût de ce que nous vous proposerons:
 
 
 
-# CONCERT "SUKH MAHAL"
+## CONCERT "SUKH MAHAL"
  <br/>
     
 La musique propose une route des Indes très personnelle, remontée en bateau pirate de la Garonne au Gange en passant par le Danube, inspirée des musique traditionnelle des Balkans et du Rajasthan, du rock, hip-hop, du jazz, des Beastie Boys, d’Asian Dub…
