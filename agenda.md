@@ -73,14 +73,9 @@ Animé par Violaine Debien : 06 64 17 06 02
 <br/>  
 
 ## Scène ouverte 
-le 1er vendredi de chaque mois.
+
+# La scene ouverte du 5 août est annulée
 <br/>     
-<br/> 
-## Attention heure d'été: 21h!
-<br/>     
-# l'heure de fermeture reste à 01h, dernier délai
-<br/>     
-Venez participer avec votre instrument , votre voix, votre écoute...
 <br/> 
 <br/>
 
@@ -132,46 +127,17 @@ Contact: Toby: 06 04 45 19 39
 <br/>
 ## II/ LA PROG AU JOUR LE JOUR
 <br/>
-<br/>
-
-
-## Le mercredi 20 juillet à 18h30
- <br/>
- # Réunion du groupement forestier citoyen et écologique
  <br/>
  <br/>
-
-## Samedi 30 juillet à 21h
- <br/>
-# "La Quête du Râle"
- <br/>
- 
-"Ce spectacle est né de la rencontre entre un didgeridoo (instrument de musique aborigène d'Australie) et un clown ( moi-même)...
-
-Il nous emmène à l'époque de la préhistoire et propulse un homme préhistorique dans le monde d’aujourd’hui. Comme dans toute aventure nous avons besoin de lâcher nos repères pour en découvrir d'autres.
-Le personnage Paaahaaaa va donc partir en quête pour découvrir qui nous sommes, comment nous communiquons, quels sont nos rites.
-
-Il va braver le ridicule avec panache pour se faire aimer comme il est...
- 
-... Existe-t-il un lien entre les anciennes danses tribales préhistoriques, aborigènes ou indiennes et la musique d'aujourd'hui?
-De toute évidence dans ce spectacle il y en a un... Après avoir découvert le didgeridoo, Paaahaaaa découvre le beat box, puis la drum and bass..."
-
-Spectacle tout public
-Clown, musique, jonglerie
-
-Entrée au chapeau
-renseignements Luc: 06 26 47 43 94
- <br/>
- <br/>
-![affiche-quete-du-rale-2022](https://user-images.githubusercontent.com/77194514/177800110-38e4260c-de7b-43ab-a5c8-83f54a78b4fe.jpg)
-
- <br/>
+ # Annulation de la scène ouverte du vendredi 5 août
   <br/>
+  <br/>
+   <br/>
  ## Vendredi 12 août å 21h
   <br/>
  # Concert "Mestizaje del viaje"
 <br/>
- Duo Chili-Argentine
+ duo Chili-Argentine
   <br/>
     <br/>
   ![IMG-20220424-WA0003](https://user-images.githubusercontent.com/77194514/177822596-3d8e7577-bc43-430d-9910-08548b5fea09.jpg)
@@ -200,6 +166,8 @@ renseignements Luc: 06 26 47 43 94
  Cie Lilo Théatre,
  de et avec Emilie Dussarat <br/>; Mise en scène Emilie Esquerré et Laurent Dabadie
   <br/>
+ ![Cynthia](https://user-images.githubusercontent.com/77194514/182567171-3baf382c-1b1f-4414-8f6e-0091a107573d.jpeg)
+ 
   
  THEATRE TOUT PUBLIC
   <br/>
