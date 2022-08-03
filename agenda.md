@@ -163,13 +163,54 @@ Contact: Toby: 06 04 45 19 39
   <br/>
  # "Cynthia premières neiges"
   <br/>
- Cie Lilo Théatre,
- de et avec Emilie Dussarat <br/>; Mise en scène Emilie Esquerré et Laurent Dabadie
   <br/>
  ![Cynthia](https://user-images.githubusercontent.com/77194514/182567171-3baf382c-1b1f-4414-8f6e-0091a107573d.jpeg)
- 
+ <br/>
+  <br/>  
+Cie Lilo Théatre,
+de et avec Emilie Dussarat
+mise en scène
+par Émilie ESQUERRE et Laurent LABADIE
+"Seule en scène" de 50 mn.
+  <br/>
+Cynthia a entendu à la radio une phrase qui lui a fait « Paf »
+dans la tête : La vie c’est le mouvement !
+ <br/> 
+Elle en sait quelque chose elle qui est « dans le remplacement » au centre social : passer du ménage, à l’accueil, aux permanences de week-end, à la disposition des tables et des chaises pour les réunions, au rangement des tables et des chaises, à l’affichage…
+ <br/> 
+C’est sûr qu’il faut pas avoir les deux pieds dans le même sabot…
+ni dans le même chausson de danse ! Parce que le Centre social c’est ça aussi, la réalisation d’un rêve dansé, la découverte d’un monde inconnu au gré de stages surprenants et de rencontres avec un monde insoupçonné ! Autant d’atouts pour permettre à Cynthia de partager sa nécessité absolue :
+être en mouvement dans la ronde du monde !
+ Une histoire d’émancipation par la danse et par le lien social…
+ <br/> 
+Tout public, à partir de 8 ans
+Entrée au chapeau
+renseignements Jean-Luc 06 80 28 00 57
+  <br/>
+  <br/>
   
- THEATRE TOUT PUBLIC
+## Lundi 22 août 18h30
+ 
+ 
+Réunion de préparation
+pour
+"Le Petit Toit d'Etoiles"
+   <br/>
+  <br/>
+ Vous voudriez bien être bénévole, mais vous ne serez pas à la réunion...
+Venez rejoindre la sympathique équipe
+qui s'occupera de nourrir les artistes et les bénévoles
+pendant ces deux jours,
+en vous faisant connaitre rapidement sur le mail du café en vue d'une réunion de préparation cuisine
+(plus on est nombreux.ses , moins y'a d'boulot)
+ lezidefuz@gmail.com
+Si la cuisine c'est pas votre truc , mais que vous vouliez participer,
+faites vous connaitre qu'on puisse vous contacter.
+lezidefuz@gmail.com
+   <br/>
+  <br/>
+ # Une" réunion générale" est prévue 
+mardi 13 septembre à 18h30
   <br/>
   <br/>
 ## Dimanche 04 Septembre 14h30
@@ -178,7 +219,6 @@ Contact: Toby: 06 04 45 19 39
 # Assemblée Générale de L'association LEZIDEFUZ ,
 Retenez d'ores et déjà  cette date
 pour venir partager ce moment important pour toute association.
-
  <br/>
   <br/>
 
@@ -194,6 +234,13 @@ pour venir partager ce moment important pour toute association.
 Voilà un avant goût de ce que nous vous proposerons:
  <br/>
  <br/>
+## L'atelier thêatre de l'association Parèïdolie pr
+  <br/>
+# "Le songe d'une nuit d'été " d'après W. Shakespeare.
+  <br/>
+  <br/>
+
+
 
 # CONCERT "SUKH MAHAL"
  <br/>
@@ -242,18 +289,7 @@ vagabond attachant et sensible qui pose sa valise le temps de raconter son histo
 ![Les balles populaires portrait crédit Patrick Loyat](https://user-images.githubusercontent.com/77194514/177810489-a715669a-1dfe-450b-b7e6-d4dc5acfe6ef.jpg)
  <br/>
   <br/> 
-## Venez rejoindre la sympathique équipe
-qui s'occupera de nourrir les artistes et les bénévoles pendant ces deux jours,
-en vous faisant connaitre rapidement sur le mail du café en vue d'une réunion de préparation cuisine 
-(plus on est nombreux.ses , moins y'a d'boulot)
-lezidefuz@gmail.com
 
-Si la cuisine c'est pas votre truc , mais que vous vouliez participer,
-faites vous connaitre qu'on puisse vous contacter.
-lezidefuz@gmail.com
-
-# Une" réunion générale"  est prévue le mardi 13.septembre
-à 18h30 au Café asso.
 
 
  
