@@ -40,6 +40,18 @@ Lors de ces soirées le bar est ouvert.
 
 <br/>  
 <br/> 
+## Atelier théatre enfant
+<br/> 
+CE2/CM2
+<br/> 
+chaque lUNDI 17H -18H30
+<br/> 
+155€ l'année
+Adhésion à l´Association Paréïdolie:8€
+<br/> 
+Animé par Isis Eymery comédienne et metteur en scène,tel:06 75 60 85 11
+<br/> 
+<br/> 
 ## Danse libre 
 <br/>
 2ème samedi de chaque mois de 14h30-16h30  
@@ -61,7 +73,7 @@ Animé par Violaine Debien : 06 64 17 06 02
 
 ## Scène ouverte 
 
-# La scene ouverte du 5 août est annulée
+# Pas de scène ouverte en septembre
 <br/>     
 <br/> 
 <br/>
@@ -71,12 +83,13 @@ Animé par Violaine Debien : 06 64 17 06 02
 Tous les 28 du mois à 19h - ouvert à tout.e.s
 
 <br/>
-<br/>
+<br/>   
 
 ## Café Oc'
 <br/>
 
-2ème mardi de chaque mois de 19h à 22h  
+2ème mardi de chaque mois de 19h à 22h 
+# à partir d'octobre 2022
 <br/>
 <br/>
 Repas en auberge espagnole, apportez vos couverts.
@@ -116,115 +129,68 @@ Contact: Toby: 06 04 45 19 39
 <br/>
  <br/>
  <br/>
- # Annulation de la scène ouverte du vendredi 5 août
-  <br/>
-  <br/>
-   <br/>
- ## Vendredi 12 août å 21h
-  <br/>
- # Concert "Mestizaje del viaje"
-<br/>
- duo Chili-Argentine
-  <br/>
-  Entrée au chapeau.
-    <br/>
-    Renseignement Isis: 06 75 60 85 11
-      <br/>
-  <br/>
-  ![IMG-20220424-WA0003](https://user-images.githubusercontent.com/77194514/177822596-3d8e7577-bc43-430d-9910-08548b5fea09.jpg)
-<br/>
-  <br/>
-  ![IMG-20220424-WA0004](https://user-images.githubusercontent.com/77194514/177823307-6dc356eb-9fdb-4f48-b917-701cf8c958c4.jpg)
-  <br/>
-    <br/>
-  ## Mercredi 17 août à 18h30
-   <br/>
-# Rèunion du Groupement Forestier Citoyen Ecologique
- <br/>
-  <br/> 
-  ## Vendredi 19 août à 20h
-   <br/>
- # Cafè collapso-des croissants
-  <br/>
- " Une alimentation vraiment locale est-elle possible ?"
- Avec Christophe Villevégoux
- <br/>
-  <br/>
- ## Samedi 20 août à 21h
-  <br/>
- # "Cynthia premières neiges"
-  <br/>
-  <br/>
- ![Cynthia](https://user-images.githubusercontent.com/77194514/182567171-3baf382c-1b1f-4414-8f6e-0091a107573d.jpeg)
- <br/>
-  <br/>  
-Cie Lilo Théatre,
-de et avec Emilie Dussarat
-mise en scène
-par Émilie ESQUERRE et Laurent LABADIE
-"Seule en scène" de 50 mn.
-  <br/>
-Cynthia a entendu à la radio une phrase qui lui a fait « Paf »
-dans la tête : La vie c’est le mouvement !
+ ## Jeudi 1 er septembre 19h30-20h30 
  <br/> 
-Elle en sait quelque chose elle qui est « dans le remplacement » au centre social : passer du ménage, à l’accueil, aux permanences de week-end, à la disposition des tables et des chaises pour les réunions, au rangement des tables et des chaises, à l’affichage…
+ Reprise  de la gym bien-être
+ Tel Violaine: 06 64 17 06 02
  <br/> 
-C’est sûr qu’il faut pas avoir les deux pieds dans le même sabot…
-ni dans le même chausson de danse ! Parce que le Centre social c’est ça aussi, la réalisation d’un rêve dansé, la découverte d’un monde inconnu au gré de stages surprenants et de rencontres avec un monde insoupçonné ! Autant d’atouts pour permettre à Cynthia de partager sa nécessité absolue :
-être en mouvement dans la ronde du monde !
- Une histoire d’émancipation par la danse et par le lien social…
  <br/> 
-Tout public, à partir de 8 ans
-Entrée au chapeau
-renseignements Jean-Luc 06 80 28 00 57
+ # Pas de scène ouverte en septembre
   <br/>
-  <br/>
-  
-## Lundi 22 août 18h30
+ <br/>
  
- 
-# Réunion de préparation pour
-  
-# "Le Petit Toit d'Etoiles"
-   <br/>
-  <br/>
- Vous voudriez bien être bénévole, mais vous ne serez pas à la réunion...
-Venez rejoindre la sympathique équipe
-qui s'occupera de nourrir les artistes et les bénévoles
-pendant ces deux jours,
-en vous## faisant connaitre rapidement sur le mail du café en vue d'une réunion de préparation cuisine
-(plus on est nombreux.ses , moins y'a d'boulot)
- lezidefuz@gmail.com
-Si la cuisine c'est pas votre truc , mais que vous vouliez participer,
-faites vous connaitre qu'on puisse vous contacter.
-lezidefuz@gmail.com
-   <br/>
-  <br/>
- # Une" réunion générale" est prévue 
-mardi 13 septembre à 18h30
-  <br/>
-  <br/>
 ## Dimanche 04 Septembre 14h30
- <br/>
-
-# Assemblée Générale de L'association LEZIDEFUZ ,
-Retenez d'ores et déjà  cette date
-pour venir partager ce moment important pour toute association.
- <br/>
   <br/>
-
+  # Assemblée Générale de LEZIDEFUZ à 14h30
+ <br/> 
+ Suivie d'un apéritif...
+   <br/>
+ <br/>
+  ## Samedi 10 septembre
+ <br/> 
+ Reprise Danse libre 14h30-16h30
+ Tel Violaine.06 64 17 06 02
+ <br/> 
+ <br/> 
+ ## Mardi 13 septembre
+   <br/>
+ # réunion générale "Petit toit d'étoiles" à 18h30
+ <br/>
+ <br/> 
+## Mercredi 14 septembre á 18h30 et mercredi 28 septembre même heure
+  <br/>
+Réunion du groupement forestier citoyen et écologique
+  <br/>
+ <br/>
 ## Samedi 17 et dimanche 18 septembre
  <br/>
   <br/>
 ## LE PETIT TOIT d'ETOILES
  <br/>
   <br/>
-... le retour, enfin!
-
- 
-Voilà un avant goût de ce que nous vous proposerons:
+Voir programme plu
+  <br/>
+ <br/>
+ ## Lundi 19 septembre 17h-18h30
+   <br/>
+   Reprise du thêatre enfant
+     <br/>
+ <br/>
+ ## Vendredi 23 septembre  20h
+   <br/>
+Café collapso-des-croissants
  <br/>
  <br/>
+ ## Dimanche 25 septembre15h
+   <br/>
+Reprise du café tricot
+ <br/>
+ <br/>
+ ## PROGRAMME PETIT TOIT D'ÉTOILES
+   <br/>
+ <br/>
+ ## Samedi 17 septembre 17h30
+   <br/>
 ## L'atelier thêatre de l'association Parèïdolie présente
   <br/>
 # "Le songe d'une nuit d'été " d'après W. Shakespeare.
@@ -280,11 +246,6 @@ vagabond attachant et sensible qui pose sa valise le temps de raconter son histo
 ![Les balles populaires portrait crédit Patrick Loyat](https://user-images.githubusercontent.com/77194514/177810489-a715669a-1dfe-450b-b7e6-d4dc5acfe6ef.jpg)
  <br/>
   <br/> 
-
-
-
- 
-
- 
+![afficheA4](https://user-images.githubusercontent.com/77194514/187174588-65019323-bed2-43ed-b7f2-54b11cb477df.png)
  
 
