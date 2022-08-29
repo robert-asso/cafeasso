@@ -200,17 +200,14 @@ Reprise du café tricot
     <br/> 
    #  Premier atelier samedi 22 octobre
     <br/>
-    <br/>
 "Dans cet atelier de 3h, je t'invite à entrer dans l'Univers du Clown et á apprivoiser cette forme d'expression, de language: Passer du silence á l'etat clown, du senti/contact intérieur au mouvement á la voix et á ta musicalité propre."
  <br/>
  Tarif: 20€/séance
  <br/>
- Inscriptions et renseignements: lagrandedd@gmail.com
+ Inscriptions et renseignements: lagrandedd@gmail.com, ou tel Martine: 07 72 55 68 87
  <br/>
  Allez donc voir son site: lagrandedeguingandee.com 
   <br/>
-  Tel Martine: 07 72 55 68 87
- <br/>
  <br/>
  ![photo martine szontagh](https://user-images.githubusercontent.com/77194514/187187537-f14c0b63-e39d-4e19-ad7e-9abb24597f7d.jpg)
    
