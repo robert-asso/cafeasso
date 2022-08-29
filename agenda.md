@@ -186,6 +186,29 @@ Café collapso-des-croissants
 Reprise du café tricot
  <br/>
  <br/>
+ ## En Octobre et jusqu'en mai 2023
+  <br/>
+  # Ateliers de clown 
+   <br/>
+   Animé par Martine Szontagh,clown, comédienne, metteur en clown, créatrice de spectacle de la Cie "la grande déguingandée"
+    <br/>
+
+  Un samedi par mois de 10h á 13h15,puis  pic-nic sorti du panier.
+    <br/> 
+    Premier atelier le:
+  # samedi 22 octobre
+"Dans cet atelier de 3h, je t'invite à entrer dans l'Univers du Clown et á apprivoiser cette frme d'expression, de language: Passer du silence á l'etat clown, du senti/contact intérieur au mouvement á la voix et á ta musicalité propre."
+ <br/>
+ Tarif: 20€/séance
+ <br/>
+ Inscriptions et renseignements: 
+ # lagrandedd@gmail.com
+ Allez donc voir son site: 
+ # lagrandedeguingandee.com 
+  <br/>
+  Tel Martine: 07 72 55 68 87
+ Vous en saurez beaucoup.
+   
  ## PROGRAMME PETIT TOIT D'ÉTOILES
    <br/>
   # Tous les spectacles sont gratuits pour les enfants de moins de 12 ans
