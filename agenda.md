@@ -195,8 +195,7 @@ Reprise du café tricot
    <br/>
    Animé par Martine Szontagh, clown, comédienne, metteur en clown, créatrice de spectacle de la Cie "la grande déguingandée"
     <br/>
-
-  Un samedi par mois de 10h á 13h15, puis  pic-nic sorti du panier.
+ Un samedi par mois de 10h á 13h15, puis  pic-nic sorti du panier.
     <br/> 
    #  Premier atelier samedi 22 octobre
     <br/>
