@@ -130,7 +130,7 @@ Contact: Toby: 06 04 45 19 39
 <br/>
  <br/>
  <br/>
- ## Jeudi 1 er septembre 19h30-20h30 
+ ## Jeudi 01 septembre 19h30-20h30 
  <br/> 
  Reprise  de la gym bien-être
  <br/>
@@ -198,12 +198,12 @@ Reprise du café tricot
  Un samedi par mois de 10h á 13h15, puis  pic-nic sorti du panier.
     <br/> 
    #  Premier atelier samedi 22 octobre
-    <br/>
+    
 "Dans cet atelier de 3h, je t'invite à entrer dans l'Univers du Clown et á apprivoiser cette forme d'expression, de language: Passer du silence á l'etat clown, du senti/contact intérieur au mouvement á la voix et á ta musicalité propre."
  <br/>
  Tarif: 20€/séance
  <br/>
- Inscriptions et renseignements: lagrandedd@gmail.com, ou tel Martine: 07 72 55 68 87
+ Inscriptions et renseignements: lagrandedd@gmail.com, ou tel: 07 72 55 68 87
  <br/>
  Allez donc voir son site: lagrandedeguingandee.com 
   <br/>
@@ -285,10 +285,11 @@ Cie Encore qui ? (Gorki)
 Les balles populaires est un solo de jonglerie drôle et poétique.
 Il repose avant tout sur le personnage de Gorky,
 vagabond attachant et sensible qui pose sa valise le temps de raconter son histoire à travers son spectacle.
- <br/>
+ 
 
 ![Les balles populaires portrait crédit Patrick Loyat](https://user-images.githubusercontent.com/77194514/177810489-a715669a-1dfe-450b-b7e6-d4dc5acfe6ef.jpg)
  <br/>
  <br  
  ## 17h Final avec Samba garage#
- 
+  <br/>
+  <br/> 
