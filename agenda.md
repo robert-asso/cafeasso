@@ -184,7 +184,7 @@ Voir programme  et précisions plus bas:
 Café collapso-des-croissants
  <br/>
  <br/>
- ## Dimanche 25 septembre15h
+ ## Dimanche 25 septembre 15h
    <br/>
 Reprise du café tricot
  <br/>
@@ -198,7 +198,7 @@ Reprise du café tricot
 
   Un samedi par mois de 10h á 13h15, puis  pic-nic sorti du panier.
     <br/> 
-    Premier atelier samedi 22 octobre
+   #  Premier atelier samedi 22 octobre
     <br/>
     <br/>
 "Dans cet atelier de 3h, je t'invite à entrer dans l'Univers du Clown et á apprivoiser cette forme d'expression, de language: Passer du silence á l'etat clown, du senti/contact intérieur au mouvement á la voix et á ta musicalité propre."
