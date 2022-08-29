@@ -168,7 +168,7 @@ Réunion du groupement forestier citoyen et écologique
 ## LE PETIT TOIT d'ETOILES
  <br/>
   <br/>
-Voir programme plu
+Voir programme  et précisions plus bas:
   <br/>
  <br/>
  ## Lundi 19 septembre 17h-18h30
@@ -188,20 +188,29 @@ Reprise du café tricot
  <br/>
  ## PROGRAMME PETIT TOIT D'ÉTOILES
    <br/>
+  # Tous les spectacles sont gratuits pour les enfants de moins de 12 ans
  <br/>
  ## Samedi 17 septembre 17h30
    <br/>
-## L'atelier thêatre de l'association Parèïdolie présente
+# L'atelier thêatre de l'association Parèïdolie présente
   <br/>
 # "Le songe d'une nuit d'été " d'après W. Shakespeare.
   <br/>
   <br/>
-
-
-
-## CONCERT "SUKH MAHAL"
+![afficheA4](https://user-images.githubusercontent.com/77194514/187174588-65019323-bed2-43ed-b7f2-54b11cb477df.png)
+  <br/>
+    <br/>
+## Buvette et restauration sur place
+  <br/>
+  Plat unique " Riz Indien" 8€, boisson non comprise
+  <br/>
+    <br/>
+## CONCERT "SUKH MAHAL" 21h
  <br/>
-    
+ `Entrée 6€`
+  <br/>
+Au café en cas de pluie
+ <br/>
 La musique propose une route des Indes très personnelle, remontée en bateau pirate de la Garonne au Gange en passant par le Danube, inspirée des musique traditionnelle des Balkans et du Rajasthan, du rock, hip-hop, du jazz, des Beastie Boys, d’Asian Dub…
  <br/>
     
@@ -209,9 +218,28 @@ La musique propose une route des Indes très personnelle, remontée en bateau pi
 
  <br/>
   <br/>
-
+  ## Dimanche 18 septembre
+  <br/>
+  Tous les spectacles sont en extérieur, repli salle des fêtes en cas de pluie
+   <br/>
+  # 14h
+    <br/>
+  ## SAMBA GARAGE gratuit
+  <br/>
+ <br/>
+Samba Garage propose un spectacle où se mêlent plusieurs couleurs musicales, de la traditionnelle samba carioca de bateria à des tourneries rap funk ou afro, en passant par des samba reggae et autres afoxè, maracatu et rumba.
+Samba Gar age propose un spectacle où se mêlent plusieurs couleurs musicales, de la traditionnelle samba carioca de bateria à des tourneries rap funk ou afro, en passant par des samba reggae et autres afoxè, maracatu et rumba. 
+  <br/>
+ 
+![SambaGarage](https://user-images.githubusercontent.com/77194514/177810018-2086f359-de61-47bf-9b9d-9dd880cb3858.jpg)
+  <br/>
+ <br/>  
+# 14h30
+ <br/>
+ 
 ## "STARSKY MINUTE"
   <br/>
+  `Entrée 6€`
     <br/>
 Cie La Dépliante
   <br/>
@@ -224,18 +252,12 @@ Starsky est un clown acrobate électrique à la fois fier et pudique, noble et p
  <br/>
    
   
-## SAMBA GARAGE
+## SAMBA GARAGE 15h30 gratuit
   <br/>
  <br/>
-Samba Garage propose un spectacle où se mêlent plusieurs couleurs musicales, de la traditionnelle samba carioca de bateria à des tourneries rap funk ou afro, en passant par des samba reggae et autres afoxè, maracatu et rumba.
-Samba Garage propose un spectacle où se mêlent plusieurs couleurs musicales, de la traditionnelle samba carioca de bateria à des tourneries rap funk ou afro, en passant par des samba reggae et autres afoxè, maracatu et rumba. 
+ ## LES BALLES POPULAIRES 16h
   <br/>
- 
-![SambaGarage](https://user-images.githubusercontent.com/77194514/177810018-2086f359-de61-47bf-9b9d-9dd880cb3858.jpg)
-  <br/>
- <br/>
- ## LES BALLES POPULAIRES
-  <br/>
+  Entrée 6€
   <br/> 
 Cie Encore qui ? (Gorki)
 Les balles populaires est un solo de jonglerie drôle et poétique.
@@ -247,5 +269,5 @@ vagabond attachant et sensible qui pose sa valise le temps de raconter son histo
  <br/>
   <br/> 
 ![afficheA4](https://user-images.githubusercontent.com/77194514/187174588-65019323-bed2-43ed-b7f2-54b11cb477df.png)
+ # 17h Final avec #Samba garage#
  
-
