@@ -46,10 +46,11 @@ CE2/CM2
 <br/> 
 chaque lUNDI 17H -18H30
 <br/> 
-155€ l'année
-Adhésion à l´Association Paréïdolie:8€
+155€ l'année,
+<br/>
+Adhésion à l´Association Paréïdolie: 8€
 <br/> 
-Animé par Isis Eymery comédienne et metteur en scène,tel:06 75 60 85 11
+Animé par Isis Eymery comédienne et metteur en scène,tel: 06 75 60 85 11
 <br/> 
 <br/> 
 ## Danse libre 
@@ -132,6 +133,7 @@ Contact: Toby: 06 04 45 19 39
  ## Jeudi 1 er septembre 19h30-20h30 
  <br/> 
  Reprise  de la gym bien-être
+ <br/>
  Tel Violaine: 06 64 17 06 02
  <br/> 
  <br/> 
@@ -149,6 +151,7 @@ Contact: Toby: 06 04 45 19 39
   ## Samedi 10 septembre
  <br/> 
  Reprise Danse libre 14h30-16h30
+ <br/>
  Tel Violaine.06 64 17 06 02
  <br/> 
  <br/> 
@@ -190,27 +193,26 @@ Reprise du café tricot
   <br/>
   # Ateliers de clown 
    <br/>
-   Animé par Martine Szontagh,clown, comédienne, metteur en clown, créatrice de spectacle de la Cie "la grande déguingandée"
+   Animé par Martine Szontagh, clown, comédienne, metteur en clown, créatrice de spectacle de la Cie "la grande déguingandée"
     <br/>
 
-  Un samedi par mois de 10h á 13h15,puis  pic-nic sorti du panier.
+  Un samedi par mois de 10h á 13h15, puis  pic-nic sorti du panier.
     <br/> 
-    Premier atelier le:
-  # samedi 22 octobre
-"Dans cet atelier de 3h, je t'invite à entrer dans l'Univers du Clown et á apprivoiser cette frme d'expression, de language: Passer du silence á l'etat clown, du senti/contact intérieur au mouvement á la voix et á ta musicalité propre."
+    Premier atelier samedi 22 octobre
+    <br/>
+    <br/>
+"Dans cet atelier de 3h, je t'invite à entrer dans l'Univers du Clown et á apprivoiser cette forme d'expression, de language: Passer du silence á l'etat clown, du senti/contact intérieur au mouvement á la voix et á ta musicalité propre."
  <br/>
  Tarif: 20€/séance
  <br/>
- Inscriptions et renseignements: 
- # lagrandedd@gmail.com
- Allez donc voir son site: 
- # lagrandedeguingandee.com 
+ Inscriptions et renseignements: lagrandedd@gmail.com
+ <br/>
+ Allez donc voir son site: lagrandedeguingandee.com 
   <br/>
   Tel Martine: 07 72 55 68 87
  <br/>
  <br/>
- 
-![photo martine szontagh](https://user-images.githubusercontent.com/77194514/187187537-f14c0b63-e39d-4e19-ad7e-9abb24597f7d.jpg)
+ ![photo martine szontagh](https://user-images.githubusercontent.com/77194514/187187537-f14c0b63-e39d-4e19-ad7e-9abb24597f7d.jpg)
    
  ## PROGRAMME PETIT TOIT D'ÉTOILES
    <br/>
@@ -248,9 +250,9 @@ La musique propose une route des Indes très personnelle, remontée en bateau pi
   <br/>
   Tous les spectacles sont en extérieur, repli salle des fêtes en cas de pluie
    <br/>
-  # 14h
-    <br/>
-  ## SAMBA GARAGE gratuit
+ 
+  
+  ## SAMBA GARAGE, 14,h gratuit
   <br/>
  <br/>
 Samba Garage propose un spectacle où se mêlent plusieurs couleurs musicales, de la traditionnelle samba carioca de bateria à des tourneries rap funk ou afro, en passant par des samba reggae et autres afoxè, maracatu et rumba.
@@ -260,10 +262,8 @@ Samba Gar age propose un spectacle où se mêlent plusieurs couleurs musicales, 
 ![SambaGarage](https://user-images.githubusercontent.com/77194514/177810018-2086f359-de61-47bf-9b9d-9dd880cb3858.jpg)
   <br/>
  <br/>  
-# 14h30
- <br/>
  
-## "STARSKY MINUTE"
+## "STARSKY MINUTE" 14h30
   <br/>
   `Entrée 6€`
     <br/>
@@ -293,7 +293,6 @@ vagabond attachant et sensible qui pose sa valise le temps de raconter son histo
 
 ![Les balles populaires portrait crédit Patrick Loyat](https://user-images.githubusercontent.com/77194514/177810489-a715669a-1dfe-450b-b7e6-d4dc5acfe6ef.jpg)
  <br/>
-  <br/> 
-![afficheA4](https://user-images.githubusercontent.com/77194514/187174588-65019323-bed2-43ed-b7f2-54b11cb477df.png)
- # 17h Final avec #Samba garage#
+ <br  
+ ## 17h Final avec Samba garage#
  
