@@ -189,6 +189,13 @@ Café collapso-des-croissants
 Reprise du café tricot
  <br/>
  <br/>
+ ## Vendredi 30 septembre 19h30
+   <br/>
+   Ciné-Café "Tous au Larzac",
+   <br/>
+   participation au chapeau.
+   <br/>
+ <br/>
  ## En Octobre et jusqu'en mai 2023
   <br/>
   # Ateliers de clown 
