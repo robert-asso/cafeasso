@@ -160,8 +160,10 @@ Contact: Toby: 06 04 45 19 39
  # réunion générale "Petit toit d'étoiles" à 18h30
  <br/>
  <br/> 
-## Mercredi 14 septembre á 18h30 et mercredi 28 septembre même heure
+## Mercredi 14 septembre á 18h30 annulée!
   <br/>
+# mercredi 28 septembre 18h30
+   <br/>
 Réunion du groupement forestier citoyen et écologique
   <br/>
  <br/>
