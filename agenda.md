@@ -162,7 +162,8 @@ Contact: Toby: 06 04 45 19 39
  <br/> 
 ## Mercredi 14 septembre á 18h30... annulée!
   <br/>
-# mercredi 28 septembre 18h30
+## Prévue le mercredi 28 septembre, 
+## est avancée au mardi 27 septembre à 18h30
    <br/>
 Réunion du groupement forestier citoyen et écologique
   <br/>
@@ -190,6 +191,11 @@ Café collapso-des-croissants
    <br/>
 Reprise du café tricot
  <br/>
+ <br/>
+ ## Mardi 27 septembre 18h30
+  <br/>
+  Réunion du Groupement Forestier Citoyen et Ecologique
+   <br/>
  <br/>
  ## Vendredi 30 septembre 19h30
    <br/>
