@@ -133,9 +133,10 @@ Contact: Toby: 06 04 45 19 39
  ![DSCN2998](https://user-images.githubusercontent.com/77194514/191121407-a3fb4850-b5f1-4344-9ff8-15a32fd9095f.jpeg)
  <br/>
  Encore un magnifique Petit toit d'étoiles, public chaleureux, spectacles réussis, beaucoup d'enfants (nous devrons en tenir compte pour la prochaine édition).un peu (beaucoup) frais le samedi pour la sublime pièce de théatre, soleil radieux le dimanche, et une ambiance  festive rytmée par le groupe samba garage. Merci à tous.
+<br/>
+<br/>
 
-
-## Prévue le mercredi 28 septembre, 
+## La réunion progp prévue le mercredi 28 septembre, 
 ## est avancée au mardi 27 septembre à 18h30
    <br/>
 Réunion du groupement forestier citoyen et écologique
