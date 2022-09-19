@@ -96,8 +96,6 @@ Tous les 28 du mois à 19h - ouvert à tout.e.s
 Repas en auberge espagnole, apportez vos couverts.
 <br/>
 Chasdun pòrta son minjat, n'um boira tot aquò, e se parla occitan!
-
-
 Contact: Luc / 06 26 47 43 94
 <br/>
 <br/>
@@ -105,6 +103,8 @@ Contact: Luc / 06 26 47 43 94
 ## Café Tricot 
 
 4ème dimanche de chaque mois à 15h
+<br/>
+Annulé le 25 septembre.
 <br/>
 <br/>
 Contact: Claudette: 06 62 21 63 00
@@ -128,58 +128,22 @@ Contact: Toby: 06 04 45 19 39
 <br/>
 ## II/ LA PROG AU JOUR LE JOUR
 <br/>
- <br/>
- <br/>
- ## Jeudi 01 septembre 19h30-20h30 
+  <br/> 
  <br/> 
- Reprise  de la gym bien-être
- <br/>
- Tel Violaine: 06 64 17 06 02
- <br/> 
- <br/> 
- ## Pas de scène ouverte en septembre
-  <br/>
- <br/>
- 
-## Dimanche 04 Septembre 14h30
-  <br/>
-  # Assemblée Générale de LEZIDEFUZ à 14h30
- <br/> 
- Suivie d'un apéritif...
-   <br/>
- <br/>
-  ## Samedi 10 septembre
- <br/> 
- Reprise Danse libre 14h30-16h30
- <br/>
- Tel Violaine.06 64 17 06 02
- <br/> 
- <br/> 
- ## Mardi 13 septembre
-   <br/>
- # réunion générale "Petit toit d'étoiles" à 18h30
- <br/>
- <br/> 
-## Mercredi 14 septembre á 18h30... annulée!
-  <br/>
+
+
 ## Prévue le mercredi 28 septembre, 
 ## est avancée au mardi 27 septembre à 18h30
    <br/>
 Réunion du groupement forestier citoyen et écologique
   <br/>
  <br/>
-## Samedi 17 et dimanche 18 septembre
- <br/>
-  <br/>
-## LE PETIT TOIT d'ETOILES
- <br/>
-  <br/>
-Voir programme  et précisions plus bas:
-  <br/>
- <br/>
+
  ## Lundi 19 septembre 17h-18h30
    <br/>
    Reprise du thêatre enfant
+   <br/> 
+   #Il reste encore des places pour s'inscrire!
      <br/>
  <br/>
  ## Vendredi 23 septembre  20h
@@ -189,7 +153,7 @@ Café collapso-des-croissants
  <br/>
  ## Dimanche 25 septembre 15h
    <br/>
-Reprise du café tricot
+Reprise du café tricot...# annulée!
  <br/>
  <br/>
  ## Mardi 27 septembre 18h30
@@ -224,87 +188,4 @@ Reprise du café tricot
   <br/>
  <br/>
  ![photo martine szontagh](https://user-images.githubusercontent.com/77194514/187187537-f14c0b63-e39d-4e19-ad7e-9abb24597f7d.jpg)
-   
- ## PROGRAMME PETIT TOIT D'ÉTOILES
-   <br/>
-  # Tous les spectacles sont gratuits pour les enfants de moins de 12 ans
- <br/>
- ## Samedi 17 septembre 17h30
-   <br/>
-# L'atelier thêatre de l'association Parèïdolie présente
-  <br/>
-# "Le songe d'une nuit d'été " d'après W. Shakespeare.
-  <br/>
-  <br/>
-![afficheA4](https://user-images.githubusercontent.com/77194514/187174588-65019323-bed2-43ed-b7f2-54b11cb477df.png)
-  <br/>
-    <br/>
-## Buvette et restauration sur place
-  <br/>
-  Plat unique " Riz Indien" 8€, boisson non comprise
-  <br/>
-    <br/>
-## CONCERT "SUKH MAHAL" 21h
- <br/>
- `Entrée 6€`
-  <br/>
-Au café en cas de pluie
- <br/>
-La musique propose une route des Indes très personnelle, remontée en bateau pirate de la Garonne au Gange en passant par le Danube, inspirée des musique traditionnelle des Balkans et du Rajasthan, du rock, hip-hop, du jazz, des Beastie Boys, d’Asian Dub…
- <br/>
-    
-![Sukhmahal - Crédit Caroline Pioger](https://user-images.githubusercontent.com/77194514/177803871-7ff62f1a-3dae-46ca-92ba-1f48e45755f3.JPG)
-
- <br/>
-  <br/>
-  ## Dimanche 18 septembre
-  <br/>
-  Tous les spectacles sont en extérieur, repli salle des fêtes en cas de pluie
-   <br/>
- 
   
-  ## SAMBA GARAGE, 14,h gratuit
-  <br/>
- <br/>
-Samba Garage propose un spectacle où se mêlent plusieurs couleurs musicales, de la traditionnelle samba carioca de bateria à des tourneries rap funk ou afro, en passant par des samba reggae et autres afoxè, maracatu et rumba.
-Samba Gar age propose un spectacle où se mêlent plusieurs couleurs musicales, de la traditionnelle samba carioca de bateria à des tourneries rap funk ou afro, en passant par des samba reggae et autres afoxè, maracatu et rumba. 
-  <br/>
- 
-![SambaGarage](https://user-images.githubusercontent.com/77194514/177810018-2086f359-de61-47bf-9b9d-9dd880cb3858.jpg)
-  <br/>
- <br/>  
- 
-## "STARSKY MINUTE" 14h30
-  <br/>
-  `Entrée 6€`
-    <br/>
-Cie La Dépliante
-  <br/>
-Starsky est un clown acrobate électrique à la fois fier et pudique, noble et prolétaire. Il travaille chez Starsky Minute, une entreprise de livraison de colis. Sa mission ? Vous livrer un colis. Malheureusement, l’efficacité… c’est pas trop son truc.
- <br/>
- <br/>
-  ![Starsky Minu 2](https://user-images.githubusercontent.com/77194514/177811401-c01e1b79-093e-46ce-a8ed-a4eebb526175.jpeg)
-
- <br/>
- <br/>
-   
-  
-## SAMBA GARAGE 15h30 gratuit
-  <br/>
- <br/>
- ## LES BALLES POPULAIRES 16h
-  <br/>
-  Entrée 6€
-  <br/> 
-Cie Encore qui ? (Gorki)
-Les balles populaires est un solo de jonglerie drôle et poétique.
-Il repose avant tout sur le personnage de Gorky,
-vagabond attachant et sensible qui pose sa valise le temps de raconter son histoire à travers son spectacle.
- 
-
-![Les balles populaires portrait crédit Patrick Loyat](https://user-images.githubusercontent.com/77194514/177810489-a715669a-1dfe-450b-b7e6-d4dc5acfe6ef.jpg)
- <br/>
- <br  
- ## 17h Final avec Samba garage#
-  <br/>
-  <br/> 
