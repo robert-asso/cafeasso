@@ -176,7 +176,7 @@ Reprise du café tricot...
     <br/>
  Un samedi par mois de 10h á 13h15, puis  pic-nic sorti du panier.
     <br/> 
-   #  Premier atelier samedi 22 octobre
+   ##  Premier atelier samedi 22 octobre
     
 "Dans cet atelier de 3h, je t'invite à entrer dans l'Univers du Clown et á apprivoiser cette forme d'expression, de language: Passer du silence á l'etat clown, du senti/contact intérieur au mouvement á la voix et á ta musicalité propre."
  <br/>
