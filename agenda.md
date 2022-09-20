@@ -158,7 +158,7 @@ Reprise du café tricot...
   <br/>
   Réunion du Groupement Forestier Citoyen et Ecologique
    <br/>
-   contact Margaux: 0781643496
+   contact Margaux: 07 81 64 34 96
  <br/>
  ## Vendredi 30 septembre 19h30
    <br/>
@@ -166,7 +166,7 @@ Reprise du café tricot...
    <br/>
    participation au chapeau.
    <br/>
-   Contact Virginie: 06 76 75 43 44
+   Contact Virginie. B.: 06 76 75 43 44
  <br/>
  ## En Octobre et jusqu'en mai 2023
   <br/>
