@@ -43,6 +43,7 @@ Lors de ces soirées le bar est ouvert.
 ## Atelier théatre enfant
 <br/> 
 CE2/CM2
+Il reste des places pour s'inscrire!
 <br/> 
 chaque lUNDI 17H -18H30
 <br/> 
@@ -136,10 +137,11 @@ Contact: Toby: 06 04 45 19 39
 <br/>
 <br/>
 
-## La réunion progp prévue le mercredi 28 septembre, 
+## La réunion prévue le mercredi 28 septembre, 
 ## est avancée au mardi 27 septembre à 18h30
    <br/>
 Réunion du groupement forestier citoyen et écologique
+contact Margaux Bordes: 07 81 64 34 96
   <br/>
  <br/>
 
@@ -147,7 +149,7 @@ Réunion du groupement forestier citoyen et écologique
    <br/>
    Reprise du thêatre enfant
    <br/> 
-   #Il reste encore des places pour s'inscrire!
+   # Il reste encore des places pour s'inscrire!
      <br/>
  <br/>
  ## Vendredi 23 septembre  20h
@@ -157,12 +159,13 @@ Café collapso-des-croissants
  <br/>
  ## Dimanche 25 septembre 15h
    <br/>
-Reprise du café tricot...# annulée!
+Reprise du café tricot...# annulée 
  <br/>
  <br/>
  ## Mardi 27 septembre 18h30
   <br/>
   Réunion du Groupement Forestier Citoyen et Ecologique
+  contact Margaux: 07 81 64 34 96
    <br/>
  <br/>
  ## Vendredi 30 septembre 19h30
