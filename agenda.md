@@ -180,8 +180,9 @@ Inscriptions et renseignements: lagrandedd@gmail.com, ou tel: 07 72 55 68 87
  <br/>
   <br/>
    <br/>
+    <br/>
   ## Samedi 29 octobre à 21h
-   <br/>
+ 
   # concert du groupe 
   # "Humus Machine"
   
@@ -192,10 +193,11 @@ Pour la sortie de son 2ème album, ESPERANÇA, le groupe revient au café de Lé
      ![PhotoHUMUSMAHINE2022](https://user-images.githubusercontent.com/77194514/193287486-1693952e-8bfe-4c5b-bc03-8b8decf1dfc4.png)
   <br/>
   <br/>
-   <br/>   
+  <br/> 
+  <br/>
  ## A venir en novembre et décembre:
  <br/>
-    # Le samedi 05 novembre à 20h30
+ # Le samedi 05 novembre à 20h30
  <br/>
  # Spectacle de Clown solo par Martine Szontagh
  <br/>
