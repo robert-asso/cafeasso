@@ -74,14 +74,14 @@ Animé par Violaine Debien : 06 64 17 06 02
 
 ## Scène ouverte 
 
-# Pas de scène ouverte en septembre
+# Pas de scène ouverte en Octobre
 <br/>     
 <br/> 
 <br/>
 
  ## Réunion Prog' 
 
-Tous les 28 du mois à 19h - ouvert à tout.e.s
+Tous les 28 du mois à 18h30- ouvert à tout.e.s
 
 <br/>
 <br/>   
@@ -90,7 +90,6 @@ Tous les 28 du mois à 19h - ouvert à tout.e.s
 <br/>
 
 2ème mardi de chaque mois de 19h à 22h 
-# à partir d'octobre 2022
 <br/>
 <br/>
 Repas en auberge espagnole, apportez vos couverts.
@@ -135,31 +134,6 @@ Contact: Toby: 06 04 45 19 39
  Encore un magnifique Petit toit d'étoiles, public chaleureux, spectacles réussis, beaucoup d'enfants (nous devrons en tenir compte pour la prochaine édition).un peu (beaucoup) frais le samedi pour la sublime pièce de théatre, soleil radieux le dimanche, et une ambiance  festive rytmée par le groupe samba garage. Merci à tous.
 <br/>
 <br/>
-
- ## Lundi 19 septembre 17h-18h30.
-   <br/>
-   Reprise du thêatre enfant
-   <br/> 
-   #Il reste encore des places pour s'inscrire!
- <br/>
- <br/>
- ## Vendredi 23 septembre  20h
-   <br/>
-Café collapso-des-croissants
- <br/>
- <br/>
- ## Dimanche 25 septembre 15h
-   <br/>
-Reprise du café tricot...
-# annulée!
- <br/>
- <br/>
- ## Mardi 27 septembre 18h30
-  <br/>
-  Réunion du Groupement Forestier Citoyen et Ecologique
-   <br/>
-   contact Margaux: 07 81 64 34 96
- <br/>
  ## Vendredi 30 septembre 19h30
    <br/>
    Ciné-Café "Tous au Larzac",
@@ -168,24 +142,49 @@ Reprise du café tricot...
    <br/>
    Contact Virginie. B.: 06 76 75 43 44
  <br/>
- ## En Octobre et jusqu'en mai 2023
   <br/>
-  # Ateliers de clown 
+ ## Lundi 03 octobre 17h-18h30.
    <br/>
+   thêatre enfant
+   <br/> 
+   # Il reste encore des places pour s'inscrire!
+ <br/>
+ <br/>
+ ## Mercredi 05 octobre 18h30
+  <br/>
+  # Assemblée Générale du Groupement Forestier Citoyen et Ecologique
+   <br/>
+   contact Margaux: 07 81 64 34 96
+ <br/>
+## Mardi 11 octobre à 19h
+ <br/>
+ # Reprise du Café oc
+  <br/>
+   <br/>
+  ## Dimanche 16 octobre à 18h
+   <br/>
+   Réunion Bilan du Petit Toit d'Etoiles
+   Suivi d'une auberge d'espagnole
+    <br/>
+     <br/>
+  ## Samedi 22 de 10h à 13h15
+  
+  # Premier Ateliers de clown 
+   <br/>
+    <br/>
    Animé par Martine Szontagh, clown, comédienne, metteur en clown, créatrice de spectacle de la Cie "la grande déguingandée"
     <br/>
  Un samedi par mois de 10h á 13h15, puis  pic-nic sorti du panier.
     <br/> 
-   ##  Premier atelier samedi 22 octobre
-    
 "Dans cet atelier de 3h, je t'invite à entrer dans l'Univers du Clown et á apprivoiser cette forme d'expression, de language: Passer du silence á l'etat clown, du senti/contact intérieur au mouvement á la voix et á ta musicalité propre."
  <br/>
  Tarif: 20€/séance
  <br/>
  Inscriptions et renseignements: lagrandedd@gmail.com, ou tel: 07 72 55 68 87
  <br/>
- Allez donc voir son site: lagrandedeguingandee.com 
+ Allez donc voir son site: lagrandedeguingandee.com .
   <br/>
  <br/>
- ![photo martine szontagh](https://user-images.githubusercontent.com/77194514/187187537-f14c0b63-e39d-4e19-ad7e-9abb24597f7d.jpg)
+ ![flyer clown leguillac](https://user-images.githubusercontent.com/77194514/193285889-4acac1c0-03c0-4e61-9c7b-45cf366b0246.jpg)
+
   
