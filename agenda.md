@@ -195,6 +195,10 @@ Pour la sortie de son 2ème album, ESPERANÇA, le groupe revient au café de Lé
  <br/>
  <br/>
  <br/>
+ https://www.youtube.com/watch?v=XGD1V4NukaE
+  <br/>
+ <br/>
+ <br/>
  ## A venir en novembre et décembre:
  <br/>
  # Le samedi 05 novembre à 20h30
@@ -217,5 +221,7 @@ Allez voir son site: lagrandedeguingandee.com
  Elevée dans les montagnes pluvieuses de Seattle, Whitney Anne Fliss leadeuse du groupe Whiskey Paradis, est une chanteuse, compositrice et musicienne au parcours trépidant. Jeune femme en quête d’aventure, elle quitte sa terre natale et voyage durant cinq ans à travers tous les continents en faisant la bohème avec son accordéon.
  Liberté, joies, rencontres et excès : l’école de la rue lui permet de se forger une forte personnalité scénique empruntant autant à la gouaille du rap qu’au glam des cabarets burlesques.
  Inspirée par des femmes fortes telles qu’Alice Russel, Etta James et Lucinda Williams, elle nous propose un voyage dans les sonorités des sixties et seventies – soul, rock n roll, disco et funk. Sur scène, elle se transforme en vrai diva rock & soul, une explosion de joie et d’énergie portée par une voix qui marque les esprits.
-
+ <br/> 
+ <br/>
+https://www.youtube.com/watch?v=RbHwehXHwZg
 
