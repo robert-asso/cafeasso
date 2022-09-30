@@ -186,5 +186,17 @@ Contact: Toby: 06 04 45 19 39
   <br/>
  <br/>
  ![flyer clown leguillac](https://user-images.githubusercontent.com/77194514/193285889-4acac1c0-03c0-4e61-9c7b-45cf366b0246.jpg)
+ <br/>
+  <br/>
+  ## Samedi 29 octobre à 21h
+   <br/>
+    <br/>
+  # concert du groupe  "Humus Machine"
+     <br/>
+   Chansons enracinées en occitan et français. 
+Pour la sortie de son 2ème album, ESPERANÇA, le groupe revient au café de Léguillac avec un nouveau répertoire. Les textes en occitan et en français sont épicés d'espagnol ou d'anglais. ESPERANÇA est un cri, une incantation ; c'est un répertoire de créations engagées, que le groupe distille sur scène avec une véritable envie de partage. Sur une rythmique énergique, soutenue par une section cuivre percutante, laissez-vous emporter dans la danse. Un seul mot d'ordre : LIBERTAT ! ! !
+   <br/>
+     <br/> 
+     ![PhotoHUMUSMAHINE2022](https://user-images.githubusercontent.com/77194514/193287486-1693952e-8bfe-4c5b-bc03-8b8decf1dfc4.png)
 
-  
+
