@@ -172,15 +172,9 @@ Contact: Toby: 06 04 45 19 39
   # Premier Ateliers de clown 
    <br/>
     <br/>
-   Animé par Martine Szontagh, clown, comédienne, metteur en clown, créatrice de spectacle de la Cie "la grande déguingandée"
-    <br/>
- Un samedi par mois de 10h á 13h15, puis  pic-nic sorti du panier.
+   puis  pic-nic sorti du panier.
     <br/> 
-"Dans cet atelier de 3h, je t'invite à entrer dans l'Univers du Clown et á apprivoiser cette forme d'expression, de language: Passer du silence á l'etat clown, du senti/contact intérieur au mouvement á la voix et á ta musicalité propre."
- <br/>
- Tarif: 20€/séance
- <br/>
- Inscriptions et renseignements: lagrandedd@gmail.com, ou tel: 07 72 55 68 87
+Inscriptions et renseignements: lagrandedd@gmail.com, ou tel: 07 72 55 68 87
  <br/>
  Allez donc voir son site: lagrandedeguingandee.com .
   <br/>
@@ -198,5 +192,6 @@ Pour la sortie de son 2ème album, ESPERANÇA, le groupe revient au café de Lé
    <br/>
      <br/> 
      ![PhotoHUMUSMAHINE2022](https://user-images.githubusercontent.com/77194514/193287486-1693952e-8bfe-4c5b-bc03-8b8decf1dfc4.png)
-
+   <br/>
+      <br/>
 
