@@ -196,4 +196,12 @@ Pour la sortie de son 2ème album, ESPERANÇA, le groupe revient au café de Lé
      ![PhotoHUMUSMAHINE2022](https://user-images.githubusercontent.com/77194514/193287486-1693952e-8bfe-4c5b-bc03-8b8decf1dfc4.png)
    <br/>
       <br/>
+ ## A venir en novembre et décembre:
+ <br/>
+    <br/>
+ # Le samedi 05 novembre à 20h30
+ <br/>
+ # Spectacle de Clown solo par Martine Szontagh
+ <br/>
+    <br/>![image](https://user-images.githubusercontent.com/77194514/193291079-45863fc4-4e8c-4004-9222-396391acd4f1.jpg)
 
