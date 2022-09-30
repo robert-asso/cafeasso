@@ -144,7 +144,7 @@ Contact: Toby: 06 04 45 19 39
   <br/>
  ## Lundi 03 octobre 17h-18h30.
    <br/>
-   thêatre enfant
+ # thêatre enfant
    <br/> 
    # Il reste encore des places pour s'inscrire!
  <br/>
@@ -155,6 +155,7 @@ Contact: Toby: 06 04 45 19 39
    <br/>
    contact Margaux: 07 81 64 34 96
  <br/>
+  <br/>
 ## Mardi 11 octobre à 19h
  <br/>
  # Reprise du Café oc
@@ -162,7 +163,8 @@ Contact: Toby: 06 04 45 19 39
    <br/>
   ## Dimanche 16 octobre à 18h
    <br/>
-   Réunion Bilan du Petit Toit d'Etoiles
+  #  Réunion Bilan du Petit Toit d'Etoiles
+   <br/>
    Suivi d'une auberge d'espagnole
     <br/>
      <br/>
@@ -190,11 +192,9 @@ Pour la sortie de son 2ème album, ESPERANÇA, le groupe revient au café de Lé
    <br/>
    <br/> 
      ![PhotoHUMUSMAHINE2022](https://user-images.githubusercontent.com/77194514/193287486-1693952e-8bfe-4c5b-bc03-8b8decf1dfc4.png)
-  <br/>
-  <br/>
-  <br/> 
-  <br/>
-   <br/>
+ <br/>
+ <br/>
+ <br/>
  ## A venir en novembre et décembre:
  <br/>
  # Le samedi 05 novembre à 20h30
@@ -204,5 +204,5 @@ Pour la sortie de son 2ème album, ESPERANÇA, le groupe revient au café de Lé
     <br/>![image](https://user-images.githubusercontent.com/77194514/193291079-45863fc4-4e8c-4004-9222-396391acd4f1.jpg)
    <br/> 
     <br/>
-  Allez donc voir son site: lagrandedeguingandee.com .
+
 
