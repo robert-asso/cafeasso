@@ -103,7 +103,6 @@ Contact: Luc / 06 26 47 43 94
 
 4ème dimanche de chaque mois à 15h
 <br/>
-Annulé le 25 septembre.
 <br/>
 <br/>
 Contact: Claudette: 06 62 21 63 00
