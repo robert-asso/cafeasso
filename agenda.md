@@ -169,39 +169,37 @@ Contact: Toby: 06 04 45 19 39
      <br/>
   ## Samedi 22 de 10h à 13h15
   
-  # Premier Ateliers de clown 
-   <br/>
-    <br/>
-   puis  pic-nic sorti du panier.
+  # Premier Atelier de clown 
+ puis  pic-nic sorti du panier.
     <br/> 
 Inscriptions et renseignements: lagrandedd@gmail.com, ou tel: 07 72 55 68 87
  <br/>
- Allez donc voir son site: lagrandedeguingandee.com .
-  <br/>
+ <br/>
  <br/>
  ![flyer clown leguillac](https://user-images.githubusercontent.com/77194514/193285889-4acac1c0-03c0-4e61-9c7b-45cf366b0246.jpg)
  <br/>
   <br/>
+   <br/>
   ## Samedi 29 octobre à 21h
    <br/>
-    <br/>
   # concert du groupe 
   # "Humus Machine"
-  
   
   Chansons enracinées en occitan et français. 
 Pour la sortie de son 2ème album, ESPERANÇA, le groupe revient au café de Léguillac avec un nouveau répertoire. Les textes en occitan et en français sont épicés d'espagnol ou d'anglais. ESPERANÇA est un cri, une incantation ; c'est un répertoire de créations engagées, que le groupe distille sur scène avec une véritable envie de partage. Sur une rythmique énergique, soutenue par une section cuivre percutante, laissez-vous emporter dans la danse. Un seul mot d'ordre : LIBERTAT ! ! !
    <br/>
-     <br/> 
+   <br/> 
      ![PhotoHUMUSMAHINE2022](https://user-images.githubusercontent.com/77194514/193287486-1693952e-8bfe-4c5b-bc03-8b8decf1dfc4.png)
-   <br/>
-      <br/>
+  <br/>
+  <br/>
+   <br/>   
  ## A venir en novembre et décembre:
  <br/>
-    <br/>
- # Le samedi 05 novembre à 20h30
+    # Le samedi 05 novembre à 20h30
  <br/>
  # Spectacle de Clown solo par Martine Szontagh
  <br/>
     <br/>![image](https://user-images.githubusercontent.com/77194514/193291079-45863fc4-4e8c-4004-9222-396391acd4f1.jpg)
+    
+    Allez donc voir son site: lagrandedeguingandee.com .
 
