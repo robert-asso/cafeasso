@@ -185,7 +185,8 @@ Inscriptions et renseignements: lagrandedd@gmail.com, ou tel: 07 72 55 68 87
   ## Samedi 29 octobre à 21h
    <br/>
     <br/>
-  # concert du groupe  "Humus Machine"
+  # concert du groupe 
+  # "Humus Machine"
     <br/>
    Chansons enracinées en occitan et français. 
 Pour la sortie de son 2ème album, ESPERANÇA, le groupe revient au café de Léguillac avec un nouveau répertoire. Les textes en occitan et en français sont épicés d'espagnol ou d'anglais. ESPERANÇA est un cri, une incantation ; c'est un répertoire de créations engagées, que le groupe distille sur scène avec une véritable envie de partage. Sur une rythmique énergique, soutenue par une section cuivre percutante, laissez-vous emporter dans la danse. Un seul mot d'ordre : LIBERTAT ! ! !
