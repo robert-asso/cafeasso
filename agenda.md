@@ -192,7 +192,8 @@ Inscriptions et renseignements: lagrandedd@gmail.com, ou tel: 07 72 55 68 87
   <br/>
   On se réveille après la looongue pause estivale : le café tricot reprend du service !
  <br/>
-# En octobre (le 23) et novembre (le 27) petits et grands sont chaleureusement invités à participer car on y fabriquera (aussi) des pompons qui serviront de décoration au marché artisanal de Noël du mois de décembre. Ce sera surtout une bonne occasion de passer un moment ensemble.
+En octobre (le 23) et novembre (le 27) petits et grands sont chaleureusement invités à participer car on y fabriquera (aussi) des pompons qui serviront de décoration au marché artisanal de Noël du mois de décembre. 
+Ce sera surtout une bonne occasion de passer un moment ensemble.
 
 Venez au choix avec : 
 vos ouvrages tricot ou crochet en cours, 
@@ -201,7 +202,7 @@ de la bonne humeur,
 l'envie d'apprendre ou de montrer aux autres 
 ou tout ça à la fois !!
  <br/>
-Inutile de s'inscrire, mais si vous avez des questions, Claudette se fera un plaisir de vous répondre : 06 62 
+Inutile de s'inscrire, mais si vous avez des questions, Claudette se fera un plaisir de vous répondre : 06 62 21 63 00.
   <br/>
   <br/>
   <br/>
