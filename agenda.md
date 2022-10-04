@@ -100,6 +100,9 @@ Contact: Luc / 06 26 47 43 94
 <br/>
 
 ## Café Tricot 
+On se réveille après la looongue pause estivale : le café tricot reprend du service !
+
+En octobre et novembre petits et grands sont chaleureusement invités à participer car on y fabriquera (aussi) des pompons qui serviront de décoration au marché artisanal de Noël du mois de décembre. Ce sera surtout une bonne occasion de passer un moment ensemble.
 
 4ème dimanche de chaque mois à 15h
 <br/>
@@ -182,8 +185,28 @@ Inscriptions et renseignements: lagrandedd@gmail.com, ou tel: 07 72 55 68 87
   <br/>
    <br/>
     <br/>
+  ## Dimanche 23 octobre de 15h à 17h
+  <br/>
+  <br/>
+  # Café tricot
+  <br/>
+  On se réveille après la looongue pause estivale : le café tricot reprend du service !
+ <br/>
+# En octobre (le 23) et novembre (le 27) petits et grands sont chaleureusement invités à participer car on y fabriquera (aussi) des pompons qui serviront de décoration au marché artisanal de Noël du mois de décembre. Ce sera surtout une bonne occasion de passer un moment ensemble.
+
+Venez au choix avec : 
+vos ouvrages tricot ou crochet en cours, 
+de la laine, des supports pour pompons,
+de la bonne humeur, 
+l'envie d'apprendre ou de montrer aux autres 
+ou tout ça à la fois !!
+ <br/>
+Inutile de s'inscrire, mais si vous avez des questions, Claudette se fera un plaisir de vous répondre : 06 62 
+  <br/>
+  <br/>
+  <br/>
   ## Samedi 29 octobre à 21h
- 
+  <br/>
   # concert du groupe 
   # "Humus Machine"
   
