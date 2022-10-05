@@ -246,6 +246,14 @@ Allez voir son site: lagrandedeguingandee.com
  <br/>
  <br/>
  <br/>
+ ## Dimanche 04 décembre de 10h à 18h
+  <br/>
+  <br/>
+  # Marché de noël
+   <br/>
+    <br/>
+    ![AFFICHENOEL22-A4](https://user-images.githubusercontent.com/77194514/194123187-4199be30-ebd1-47bb-bbd5-ce72dce89933.jpeg)
+
  ## Vendredi 09 décembre à 21h
  <br/>
  # concert de Whiskey Paradis
