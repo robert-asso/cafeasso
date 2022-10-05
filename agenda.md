@@ -170,10 +170,20 @@ Contact: Toby: 06 04 45 19 39
    <br/>
    Suivi d'une auberge d'espagnole
     <br/>
-     <br/>
+    <br/>
+    <br/>
+  ## vendredi 21 octobre à 20h
+   <br/>
+  #  Café collapso des croissants
+    <br/>
+    <br/>
+   Faudra-t-il hiberner pour passer l'hiver ? Ruptures en tous genres , comment anticiper ...."
+  <br/>
+  <br/>
+  <br/>
   ## Samedi 22 de 10h à 13h15
-  
-  # Premier Atelier de clown 
+   <br/>
+ # Premier Atelier de clown 
  puis  pic-nic sorti du panier.
     <br/> 
 Inscriptions et renseignements: lagrandedd@gmail.com, ou tel: 07 72 55 68 87
