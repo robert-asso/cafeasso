@@ -136,15 +136,7 @@ Contact: Toby: 06 04 45 19 39
  Encore un magnifique Petit toit d'étoiles, public chaleureux, spectacles réussis, beaucoup d'enfants (nous devrons en tenir compte pour la prochaine édition).un peu (beaucoup) frais le samedi pour la sublime pièce de théatre, soleil radieux le dimanche, et une ambiance  festive rytmée par le groupe samba garage. Merci à tous.
 <br/>
 <br/>
- ## Vendredi 30 septembre 19h30
-   <br/>
-   Ciné-Café "Tous au Larzac",
-   <br/>
-   participation au chapeau.
-   <br/>
-   Contact Virginie. B.: 06 76 75 43 44
- <br/>
-  <br/>
+
  ## Lundi 03 octobre 17h-18h30.
    <br/>
  # thêatre enfant
