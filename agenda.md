@@ -208,7 +208,22 @@ Inutile de s'inscrire, mais si vous avez des questions, Claudette se fera un pla
   <br/>
   <br/>
   <br/>
-  ## Samedi 29 octobre à 21h
+## jeudi 27 octobre à 19h30
+ <br/>
+ <br/>
+# Café Ciné
+<br/>
+<br/>
+Ce sera ciné-surprise... pour cette fois!
+et un jeudi!
+ 
+(Venez nombreux.ses essayer cette nouvelle formule)
+<br/>
+contact: Virginie 06 76 75 43 44
+ <br/>
+ <br/>
+ <br/>
+## Samedi 29 octobre à 21h
   <br/>
   # concert du groupe 
   # "Humus Machine"
