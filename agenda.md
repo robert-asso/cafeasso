@@ -219,6 +219,7 @@ et un jeudi!
  
 (Venez nombreux.ses essayer cette nouvelle formule)
 <br/>
+<br/>
 contact: Virginie 06 76 75 43 44
  <br/>
  <br/>
