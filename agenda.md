@@ -254,6 +254,10 @@ Allez voir son site: lagrandedeguingandee.com
  <br/>
  <br/>
  <br/>
+ ## Samedi 12 novembre 
+ <br/> 
+ ![Capture d’écran (311)](https://user-images.githubusercontent.com/77194514/197690133-ccefdc2d-e5eb-4c12-af7a-922cb633c22e.png)
+
  ## Dimanche 04 décembre de 10h à 18h
   <br/>
   <br/>
