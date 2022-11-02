@@ -127,7 +127,6 @@ Contact: Toby: 06 04 45 19 39
  La gym bien être Feldenkrais aura lieu exceptionnellement avec Aurélie Vivien ce jeudi
    <br/> 
    <br/> 
-     <br/> 
  ## Le samedi 05 novembre à 20h30
  <br/>
  # Spectacle de Clown solo par Martine Szontagh
@@ -165,28 +164,30 @@ notre intimité et notre humanité universelle.
  - 10h: Nettoyage et rangement dans la joie  (bar ouvert)
  - Vers 13h repas sorti du panier 
  - 14h Réunion préparation au Petit Toit d'Etoiles 2023 (propositions,choix des dates ...etc.)
-  <br/>
  <br/>
+ <br/>
+  <br/>
  ## Samedi 12 novembre 15h/17h
  <br/> 
  ![Capture d’écran (311)](https://user-images.githubusercontent.com/77194514/197690133-ccefdc2d-e5eb-4c12-af7a-922cb633c22e.png)
  <br/>
  <br/>
+  <br/>
  ## Mardi 15 novembre 19h 
  # Café paysan
   <br/>
  <br/>
- Cinq paysans mexicains nous invitentà un échange autour de la culture du blé (variétés anciennes) et de ses multiples usages dans l'alimentation humaine
+ Cinq paysans mexicains nous invitent à un échange autour de la culture du blé (variétés anciennes) et de ses multiples usages dans l'alimentation humaine
   <br/>
  <br/>
 ## Mardi 22 Novembre à 18h
  <br/>
  <br/>
- [Cirena_Cafe_Debat_Leguillac.pdf](https://github.com/robert-asso/cafeasso/files/9919191/Cirena_Cafe_Debat_Leguillac.pdf)
+![Cirena_Cafe_Debat_LeguillacJ](https://user-images.githubusercontent.com/77194514/199469923-862e3af6-099a-4705-9197-8a46aafd8357.jpg)
+
  <br/>
  <br/>
  ## Vendredi 25 novembre à 19h30
- <br/>
  <br/>
  # café ciné doc
   <br/>
@@ -200,6 +201,8 @@ contact: Virginie 06 76 75 43 44
  # Atelier Théatre de Périgueux 
  <br/>
  <br/>
+ [WUnCoinDAzur_Presentation_LeguillacDeCercles.docx](https://github.com/robert-asso/cafeasso/files/9919605/WUnCoinDAzur_Presentation_LeguillacDeCercles.docx)
+
 #  "Un coin d’azur "
 Texte de Jean Bouchaud 
 Mise en scène d’Isabelle Gazonnois 
@@ -215,9 +218,9 @@ Mise en scène : Isabelle Gazonnois
 Entrée au chapeau
  <br/>
 Contact Philippe: O6 84 19 06 17
-
-
-
+ <br/>
+  <br/>
+   <br/>
 ## Dimanche 27 novembre
 <br/>
 # Café tricot à 15h
