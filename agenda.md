@@ -100,10 +100,7 @@ Contact: Luc / 06 26 47 43 94
 <br/>
 
 ## Café Tricot 
-On se réveille après la looongue pause estivale : le café tricot reprend du service !
-
-En octobre et novembre petits et grands sont chaleureusement invités à participer car on y fabriquera (aussi) des pompons qui serviront de décoration au marché artisanal de Noël du mois de décembre. Ce sera surtout une bonne occasion de passer un moment ensemble.
-
+<br/>
 4ème dimanche de chaque mois à 15h
 <br/>
 <br/>
@@ -132,13 +129,11 @@ Contact: Toby: 06 04 45 19 39
   <br/> 
  <br/> 
  
-
-
-  # Café tricot
-  <br/>
-  On se réveille après la looongue pause estivale : le café tricot reprend du service !
+## 27 novembre
+<br/>
+# Café tricot
  <br/>
-En octobre (le 23) et novembre (le 27) petits et grands sont chaleureusement invités à participer car on y fabriquera (aussi) des pompons qui serviront de décoration au marché artisanal de Noël du mois de décembre. 
+ <br/> Petits et grands sont chaleureusement invités à participer à la fabrication des pompons qui serviront de décoration au marché artisanal de Noël du mois de décembre. 
 Ce sera surtout une bonne occasion de passer un moment ensemble.
 
 Venez au choix avec : 
