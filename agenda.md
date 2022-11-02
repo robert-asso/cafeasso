@@ -177,10 +177,12 @@ notre intimité et notre humanité universelle.
  # Café paysan
   <br/>
  <br/>
- Trois jeunes méxicaines, leurs mères et un autre adulte  nous invitent à un échange autour de la culture du blé (variétés anciennes) et de ses multiples usages dans l'alimentation humaine. Ils viennent en espagne au pays basque et en France grâce à différentes associations de soutien aux très petits paysans boulanger, pour recolter des savoir faire à ramener chez eux, et nous parler des leurs.
- Lors de cette soirée conviviale, nous gouterons à leur cuisine et essayerons de les epater avec le contenu de notre auberge espagnole. A vos fourneaux. venez nombreux 
+ Trois jeunes mexicaines, leurs mères et un autre adulte  nous invitent à un échange autour de la culture du blé (variétés anciennes) et de ses multiples usages dans l'alimentation humaine. Ils viennent en Espagne au Pays basque et en France  dans le cadre d'une formation et grâce à différentes associations de soutien aux très petits paysans boulanger, pour recolter des savoir faire à ramener chez eux, et nous parler des leurs.
+  <br/>
+ Lors de cette soirée conviviale, nous goûterons à leur cuisine et essayerons de les épater avec le contenu de notre auberge espagnole. A vos fourneaux! Venez nombreux, surtout si vous avez des choses à dire sur le blé et sa culture.
   <br/>
  <br/>
+ Contact:  0553035074
 ## Mardi 22 Novembre à 18h
  <br/>
  <br/>
