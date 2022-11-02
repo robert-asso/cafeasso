@@ -195,15 +195,12 @@ contact: Virginie 06 76 75 43 44
  <br/>
  <br/>
  
- ## Samedi 26 Novembre à 20h30, Salle des Fêtes de Léguillac
+## Samedi 26 Novembre à 20h30, Salle des Fêtes de Léguillac
   <br/>
  <br/>
- # Atelier Théatre de Périgueux 
+# Atelier Théatre de Périgueux 
  <br/>
  <br/>
- [WUnCoinDAzur_Presentation_LeguillacDeCercles.docx](https://github.com/robert-asso/cafeasso/files/9919674/WUnCoinDAzur_Presentation_LeguillacDeCercles.docx)
-
-
 #  "Un coin d’azur "
 Texte de Jean Bouchaud 
 Mise en scène d’Isabelle Gazonnois 
