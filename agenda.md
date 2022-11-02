@@ -72,13 +72,6 @@ Animé par Violaine Debien : 06 64 17 06 02
 <br/>     
 <br/>  
 
-## Scène ouverte 
-
-# Pas de scène ouverte en Octobre
-<br/>     
-<br/> 
-<br/>
-
  ## Réunion Prog' 
 
 Tous les 28 du mois à 18h30- ouvert à tout.e.s
@@ -127,11 +120,107 @@ Contact: Toby: 06 04 45 19 39
 ## II/ LA PROG AU JOUR LE JOUR
 <br/>
   <br/> 
+## Jeudi 03 Novembre 19h30/20h30
+  <br/> 
+# Gym bien être Feldenkrais
+    <br/> 
+ La gym bien être Feldenkrais aura lieu exceptionnellement avec Aurélie Vivien ce jeudi
+   <br/> 
+   <br/> 
+     <br/> 
+ ## Le samedi 05 novembre à 20h30
+ <br/>
+ # Spectacle de Clown solo par Martine Szontagh
+ <br/>
+ <br/>![image](https://user-images.githubusercontent.com/77194514/193291079-45863fc4-4e8c-4004-9222-396391acd4f1.jpg)
  <br/> 
+ Super Aglaée
+Solo de clown
+ 
+Écriture, mise en scène et jeu :
+Martine Szontagh
+ 
+Durée : 1h 15
+Tout Public à partir de 12 ans
+Entrée au chapeau
+ 
+ 
+Aglaée Paquet, clown angulaire à l’accent étrange
+dévoile avec jubilation son incroyable décision 
+de devenir un super héros.
+Forte de sa culture audiovisuelle, elle va faire une chose exceptionnelle devant le public : se transmuter, et nous emmener dans une drôle et dynamique aventure
+pour atteindre, en fin de compte,
+notre intimité et notre humanité universelle.
+ 
+ 
+ site: lagrandedeguingandee.com
+
+ <br/>
+ <br/>
+ <br/>
+ ## Vendredi 11 novembre
+  <br/>
+ <br/>
+ # Au café on fête l'armistice en Trois temps:
+ - 10h: Nettoyage et rangement dans la joie  (bar ouvert)
+ - Vers 13h repas sorti du panier 
+ - 14h Réunion préparation au Petit Toit d'Etoiles 2023 (propositions,choix des dates ...etc.)
+  <br/>
+ <br/>
+ ## Samedi 12 novembre 15h/17h
+ <br/> 
+ ![Capture d’écran (311)](https://user-images.githubusercontent.com/77194514/197690133-ccefdc2d-e5eb-4c12-af7a-922cb633c22e.png)
+ <br/>
+ <br/>
+ ## Mardi 15 novembre 19h 
+ # Café paysan
+  <br/>
+ <br/>
+ Cinq paysans mexicains nous invitentà un échange autour de la culture du blé (variétés anciennes) et de ses multiples usages dans l'alimentation humaine
+  <br/>
+ <br/>
+## Mardi 22 Novembre à 18h
+ <br/>
+ <br/>
+ [Cirena_Cafe_Debat_Leguillac.pdf](https://github.com/robert-asso/cafeasso/files/9919191/Cirena_Cafe_Debat_Leguillac.pdf)
+ <br/>
+ <br/>
+ ## Vendredi 25 novembre à 19h30
+ <br/>
+ <br/>
+ # café ciné doc
+  <br/>
+contact: Virginie 06 76 75 43 44
+ <br/>
+ <br/>
  
-## 27 novembre
+ ## Samedi 26 Novembre à 20h30, Salle des Fêtes de Léguillac
+  <br/>
+ <br/>
+ # Atelier Théatre de Périgueux 
+ <br/>
+ <br/>
+#  "Un coin d’azur "
+Texte de Jean Bouchaud 
+Mise en scène d’Isabelle Gazonnois 
+
+Novembre 1940, l'histoire se déroule à Marseille, en zone libre. Situé près du port, Le Coin d'Azur est une ancienne maison de passe et les hasards de la guerre ont réuni là un prestidigitateur juif allemand, un pianiste allemand anti nazi, une résistante, un jeune fonctionnaire du gouvernement de Vichy et divers habitants du quartier. L’époque est à la débrouille, au marché noir, aux faux papiers et aux déguisements de toutes sortes... Dans un climat de xénophobie, alors que la ville se prépare à accueillir le vainqueur de Verdun, les personnages se trouvent impliqués dans une agression contre un policier. Ils doivent fuir au plus vite... mais comment faire lorsque gares, port et routes sont étroitement surveillés ? Seul un miracle pourrait les sauver…
+Avec 
+Ludovic Aupetit, Christophe Boucher, Sébastien Boucher, Virginie Garibaldi, Sandrine Géraud, Boris Masclet, Alain Plaud, Dominique Royer 
+
+Et derrière la scène 
+Affiche : Jean-Yves Bertin Régie son et lumières : Philippe Tonsart 
+Mise en scène : Isabelle Gazonnois 
+ <br/>
+Entrée au chapeau
+ <br/>
+Contact Philippe: O6 84 19 06 17
+
+
+
+## Dimanche 27 novembre
 <br/>
-# Café tricot
+# Café tricot à 15h
  <br/>
  <br/> Petits et grands sont chaleureusement invités à participer à la fabrication des pompons qui serviront de décoration au marché artisanal de Noël du mois de décembre. 
 Ce sera surtout une bonne occasion de passer un moment ensemble.
@@ -147,39 +236,9 @@ Inutile de s'inscrire, mais si vous avez des questions, Claudette se fera un pla
   <br/>
   <br/>
   <br/>
-## jeudi 27 octobre à 19h30
- <br/>
- <br/>
-# Café Ciné
-<br/>
-<br/>
-Ce sera ciné-surprise... pour cette fois!
-et un jeudi!
- 
-(Venez nombreux.ses essayer cette nouvelle formule)
-<br/>
-<br/>
-contact: Virginie 06 76 75 43 44
- <br/>
- <br/>
- <br/>
 
- ## A venir en novembre et décembre:
+ ## A venir en décembre:
  <br/>
- # Le samedi 05 novembre à 20h30
- <br/>
- # Spectacle de Clown solo par Martine Szontagh
- <br/>
-    <br/>![image](https://user-images.githubusercontent.com/77194514/193291079-45863fc4-4e8c-4004-9222-396391acd4f1.jpg)
- <br/> 
- <br/>
-Allez voir son site: lagrandedeguingandee.com
- <br/>
- <br/>
- <br/>
- ## Samedi 12 novembre 
- <br/> 
- ![Capture d’écran (311)](https://user-images.githubusercontent.com/77194514/197690133-ccefdc2d-e5eb-4c12-af7a-922cb633c22e.png)
 
  ## Dimanche 04 décembre de 10h à 18h
   <br/>
@@ -190,16 +249,28 @@ Allez voir son site: lagrandedeguingandee.com
     ![AFFICHENOEL22-A4](https://user-images.githubusercontent.com/77194514/194123187-4199be30-ebd1-47bb-bbd5-ce72dce89933.jpeg)
  <br/>
   <br/>
+  On vous le concocte, il mijote, il fristouille ! 
+Le revoilà, le sympathique Marché de Noël de Léguillac-de-Cercles, 
+
+Une vingtaine d'artisan.e.s locaux seront présents avec leur production toute fraîchement (ou chaudement, selon) sortie de leur atelier.
+
+Une petite restauration sera proposée au bar du café : soupes, petits pain, vin chaud.
+Et nous vous lançons par la même occasion un "appel à tarte" pour compléter la gourmandise du moment, salée ou sucrée, selon les goûts.
+Une tarte apportée = 4 fuzes (monnaie locale du café)
+
+Voici un calendrier bénévole pour celles et ceux qui souhaitent filer la patte :
+https://framadate.org/g2vcFBJv7UEV5NB2
    <br/>
+   <br/>
+  <br/>
  ## Vendredi 09 décembre à 21h
  <br/>
  # concert de Whiskey Paradis
  <br/> 
  <br/>
-    Elevée dans les montagnes pluvieuses de Seattle, Whitney Anne Fliss leadeuse du groupe Whiskey Paradis, est une chanteuse, compositrice et musicienne au parcours trépidant. Jeune femme en quête d’aventure, elle quitte sa terre natale et voyage durant cinq ans à travers tous les continents en faisant la bohème avec son accordéon.
- Liberté, joies, rencontres et excès : l’école de la rue lui permet de se forger une forte personnalité scénique empruntant autant à la gouaille du rap qu’au glam des cabarets burlesques.
- Inspirée par des femmes fortes telles qu’Alice Russel, Etta James et Lucinda Williams, elle nous propose un voyage dans les sonorités des sixties et seventies – soul, rock n roll, disco et funk. Sur scène, elle se transforme en vrai diva rock & soul, une explosion de joie et d’énergie portée par une voix qui marque les esprits.
- <br/> 
+reservez cette date pour ne pas manquer la venue exeptionnelle de Whitney Anne Fliss au café asso
+ ![large_Whiskey_Paradis3_7c7533c73e](https://user-images.githubusercontent.com/77194514/199465677-1449c610-a841-47f2-88db-cee15c32961e.jpg)
+<br/> 
  <br/>
 https://www.youtube.com/watch?v=RbHwehXHwZg
  <br/>
