@@ -181,8 +181,10 @@ notre intimité et notre humanité universelle.
   <br/>
  Lors de cette soirée conviviale, nous goûterons à leur cuisine et essayerons de les épater avec le contenu de notre auberge espagnole. A vos fourneaux! Venez nombreux, surtout si vous avez des choses à dire sur le blé et sa culture.
   <br/>
- <br/>
+
  Contact:  0553035074
+  <br/>
+  <br/>
 ## Mardi 22 Novembre à 18h
  <br/>
  <br/>
