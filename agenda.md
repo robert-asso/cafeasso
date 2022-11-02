@@ -119,22 +119,22 @@ Contact: Toby: 06 04 45 19 39
 <br/>
 ## II/ LA PROG AU JOUR LE JOUR
 <br/>
-  <br/> 
+<br/> 
 ## Jeudi 03 Novembre 19h30/20h30
-  <br/> 
+
 # Gym bien être Feldenkrais
-    <br/> 
+ <br/> 
  La gym bien être Feldenkrais aura lieu exceptionnellement avec Aurélie Vivien ce jeudi
-   <br/> 
-   <br/> 
- ## Le samedi 05 novembre à 20h30
+ <br/> 
+ <br/> 
+## Le samedi 05 novembre à 20h30
  <br/>
- # Spectacle de Clown solo par Martine Szontagh
+# Spectacle de Clown solo par Martine Szontagh
  <br/>
  <br/>![image](https://user-images.githubusercontent.com/77194514/193291079-45863fc4-4e8c-4004-9222-396391acd4f1.jpg)
  <br/> 
  Super Aglaée
-Solo de clown
+ Solo de clown
  
 Écriture, mise en scène et jeu :
 Martine Szontagh
@@ -201,7 +201,8 @@ contact: Virginie 06 76 75 43 44
  # Atelier Théatre de Périgueux 
  <br/>
  <br/>
- [WUnCoinDAzur_Presentation_LeguillacDeCercles.docx](https://github.com/robert-asso/cafeasso/files/9919605/WUnCoinDAzur_Presentation_LeguillacDeCercles.docx)
+ [WUnCoinDAzur_Presentation_LeguillacDeCercles.docx](https://github.com/robert-asso/cafeasso/files/9919674/WUnCoinDAzur_Presentation_LeguillacDeCercles.docx)
+
 
 #  "Un coin d’azur "
 Texte de Jean Bouchaud 
