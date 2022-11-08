@@ -177,8 +177,16 @@ notre intimité et notre humanité universelle.
  # Café paysan
   <br/>
  <br/>
- Trois jeunes mexicaines, leurs mères et un autre adulte  nous invitent à un échange autour de la culture du blé (variétés anciennes) et de ses multiples usages dans l'alimentation humaine. Ils viennent en Espagne au Pays basque et en France  dans le cadre d'une formation et grâce à différentes associations de soutien aux très petits paysans boulanger, pour recolter des savoir faire à ramener chez eux, et nous parler des leurs.
+ ![thumbnail_cafe-asso-leguillac-de-cercle](https://user-images.githubusercontent.com/77194514/200520153-55055f46-f786-4349-9fcd-e529940c3365.jpg)
   <br/>
+  ![Outlook-Comunidad ](https://user-images.githubusercontent.com/77194514/200520494-0b310b6d-3cf4-4e33-954c-d6d623a5287e.jpg)
+  ![Outlook-Instituto ](https://user-images.githubusercontent.com/77194514/200520570-cd6ae4f0-a109-4368-8784-dbd3e7d726b0.png)
+  ![Outlook-Via Campes](https://user-images.githubusercontent.com/77194514/200520646-ac908fb4-3d0e-4413-8b73-66e976b98565.png)
+  ![RDM_xlarge](https://user-images.githubusercontent.com/77194514/200520690-43b2b89f-67df-4a34-8a26-e42f2b222a7d.png)
+  <br/>
+  <br/>
+ Trois jeunes mexicaines, leurs mères et un autre adulte  nous invitent à un échange autour de la culture du blé (variétés anciennes) et de ses multiples usages dans l'alimentation humaine. Ils viennent en Espagne au Pays basque et en France  dans le cadre d'une formation et grâce à différentes associations de soutien aux très petits paysans boulanger, pour recolter des savoir faire à ramener chez eux, et nous parler des leurs.
+  <br/>  
  Lors de cette soirée conviviale, nous goûterons à leur cuisine et essayerons de les épater avec le contenu de notre auberge espagnole. A vos fourneaux! Venez nombreux, surtout si vous avez des choses à dire sur le blé et sa culture.
   <br/>
 
