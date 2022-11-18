@@ -195,13 +195,28 @@ Contact:  0553035074
 ## Mardi 22 Novembre à 18h
  <br/>
  <br/>
-![Cirena_Cafe_Debat_LeguillacJ](https://user-images.githubusercontent.com/77194514/199469923-862e3af6-099a-4705-9197-8a46aafd8357.jpg)
-
- <br/>
+![Cirena_Cafe_Debat_LeguillacJ](https://user-images.githubusercontent.com/77194514/199469923-862e3af6-099a-4705-9197-8a46aafd8357.jpg
+<br/>
  <br/>
  ## Vendredi 25 novembre à 19h30
  <br/>
  # café ciné doc
+ <br/>
+ <br/>
+ ![be3033a7d9c52758fb18128da12feaa332c4a3788809eb6c5d779cb0a3f283b0](https://user-images.githubusercontent.com/77194514/202726733-5ce84fda-f278-4ba2-b4ee-27080fcc6edc.jpg)
+
+ <br/>
+ <br/>
+ Pour le dernier café ciné de cette année,
+nous vous proposons de découvrir (où redécouvrir!)
+un film d'anticipation réalisé en 1973
+et dont l'histoire se déroule en 2022 !
+ 
+Vous avez l'impression de connaître ce film pour l'avoir déjà vu ou en avoir tant entendu parler !!!!
+Venez le redécouvrir avec un œil tout neuf, et au regard de cette année 2022 que nous venons de traverser !
+ 
+"Richard Fleischer cherche à mettre à jour son scénario et il va se tourner vers un écologue professionnel : Frank Bowerman. C’est lui qui propose plein de thèmes qui, à l’époque, sont assez inconnus : le réchauffement climatique, la crise des ressources, l’érosion de la biodiversité et les conséquences politiques qui suivent derrière.
+Ce qui en fait un film extrêmement visionnaire pour son époque." Frédéric Ducarme
   <br/>
 contact: Virginie 06 76 75 43 44
  <br/>
