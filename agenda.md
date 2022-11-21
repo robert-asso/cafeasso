@@ -195,8 +195,9 @@ Contact:  0553035074
 ## Mardi 22 Novembre à 18h
  <br/>
  <br/>
-![Cirena_Cafe_Debat_LeguillacJ](https://user-images.githubusercontent.com/77194514/199469923-862e3af6-099a-4705-9197-8a46aafd8357.jpg
-<br/>
+![Cirena_Cafe_Debat_LeguillacJ](
+ <br/>
+ <br/>
  <br/>
  ## Vendredi 25 novembre à 19h30
  <br/>
