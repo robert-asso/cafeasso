@@ -152,13 +152,13 @@ https://framadate.org/g2vcFBJv7UEV5NB2
   <br/>
 contact Margaux 07 81164 34 96
   <br/>
-   <br/>
+  <br/>
+  <br/>
  ## Vendredi 09 décembre à 21h
  <br/>
  # concert de Whiskey Paradis
  <br/> 
- <br/>
- Ne pas manquer la venue exeptionnelle de Whitney Anne Fliss au café asso
+ Ne manquez pas la venue exeptionnelle de Whitney Anne Fliss au café asso
  ![large_Whiskey_Paradis3_7c7533c73e](https://user-images.githubusercontent.com/77194514/199465677-1449c610-a841-47f2-88db-cee15c32961e.jpg)
 <br/> 
  <br/>
