@@ -21,14 +21,11 @@ Nous remercions Robert et Petra de l'avoir créé et soutenu pendant toutes ces 
 <br/>
 Le nouveau site est entre les jeunes et efficaces mains d'Antoine et Luc du Ruban Vert.
 Il y aura sans doute une interruption de quelques semaines avant de pouvoir y entrer, nous vous tiendrons au courant , comme nous continuerons à vous informer de la programmation par mail et facebook. 
-
-
-
 <br/>
-I/ La prog'permanente
 <br/>
-II/ La prog au jour le jour
 <br/>
+<br/>
+
 ##  I/ La prog' permanente
 <br/> 
 **S'il n'y a pas d'annonce d'annulation ces ateliers et soirées ont bien lieu**
