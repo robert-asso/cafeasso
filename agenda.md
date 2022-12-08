@@ -175,8 +175,16 @@ https://www.youtube.com/watch?v=oFcWc4Wma2I
 <br/>
 <br/>
 ## Vendredi 20 janvier à 20h
-<br/>
+
 ![VG Flyer 1](https://user-images.githubusercontent.com/77194514/206511999-03e173fd-c559-4f93-9296-31a9a75af53f.jpeg)
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
 <br/>
 <br/>
 <br/>
