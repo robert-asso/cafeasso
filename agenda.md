@@ -15,10 +15,15 @@ Chasdun pòrta son minjat e n'um boira tot aquò. Chacun apporte son repas et on
 fin exemple -->
 
 
-## Pour vous tenir au courant des annulations et des évenements de dernière minute ##
+## Notre beau site va devoir fermer fin 2022
 <br/>
+Nous remercions Robert et Petra de l'avoir créé et soutenu pendant toutes ces années.
+<br/>
+Le nouveau site est entre les jeunes et efficaces mains d'Antoine et Luc du Ruban Vert.
+Il y aura sans doute une interruption de quelques semaines avant de pouvoir y entrer, nous vous tiendrons au courant , comme nous continuerons à vous informer de la programmation par mail et facebook. 
 
-## Visitez régulièrement le site ! 
+
+
 <br/>
 I/ La prog'permanente
 <br/>
@@ -165,4 +170,20 @@ contact Margaux 07 81 64 34 96
 https://www.youtube.com/watch?v=RbHwehXHwZg
  <br/>
 https://www.youtube.com/watch?v=oFcWc4Wma2I
+
+# A VENIR EN JANVIER
+
+## Vendredi 20 janvier à 20h
+<br/>
+<br/>
+![VG Flyer 1](https://user-images.githubusercontent.com/77194514/206511999-03e173fd-c559-4f93-9296-31a9a75af53f.jpeg)
+<br/>
+<br/>
+<br/>
+Vous pourrez prendre vos adhésions 2022 au café lors d'un événement ou par courrier avec ceci:
+<br/>
+![bulletin adh petite](https://user-images.githubusercontent.com/77194514/206512642-fb979eef-6939-47ee-b609-6c9b67d01153.jpg)
+
+
+
 
