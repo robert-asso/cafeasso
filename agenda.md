@@ -167,17 +167,22 @@ contact Margaux 07 81 64 34 96
 https://www.youtube.com/watch?v=RbHwehXHwZg
  <br/>
 https://www.youtube.com/watch?v=oFcWc4Wma2I
-
-# A VENIR EN JANVIER
-
-## Vendredi 20 janvier à 20h
 <br/>
+<br/>
+<br/>
+# A VENIR EN JANVIER
+<br/>
+<br/>
+## Vendredi 20 janvier à 20h
 <br/>
 ![VG Flyer 1](https://user-images.githubusercontent.com/77194514/206511999-03e173fd-c559-4f93-9296-31a9a75af53f.jpeg)
 <br/>
 <br/>
 <br/>
-Vous pourrez prendre vos adhésions 2022 au café lors d'un événement ou par courrier avec ceci:
+<br/>
+<br/>
+Vous pourrez prendre vos adhésions 2023 au café lors d'un événement ou par courrier avec ceci:
+<br/>
 <br/>
 ![bulletin adh petite](https://user-images.githubusercontent.com/77194514/206512642-fb979eef-6939-47ee-b609-6c9b67d01153.jpg)
 
