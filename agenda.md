@@ -202,7 +202,8 @@ https://www.youtube.com/watch?v=oFcWc4Wma2I
 Vous pourrez prendre vos adhésions 2023 au café lors d'un événement ou par courrier avec ceci:
 <br/>
 <br/>
-![bulletin adh petite](https://user-images.githubusercontent.com/77194514/206512642-fb979eef-6939-47ee-b609-6c9b67d01153.jpg)
+![bulletin adhésion simple2023](https://user-images.githubusercontent.com/77194514/207311002-ff8d0c94-0ed1-491d-ba58-6b4f51de0d3f.jpg)
+
 
 
 
